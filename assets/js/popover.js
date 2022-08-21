@@ -5,6 +5,29 @@ function htmlToElement(html) {
   return template.content.firstChild
 }
 
+function findHeaderWithoutPunctuation(header, content) {
+  let loweredContent = content.toLowerCase()
+  let pos = -1
+  let search = true
+  while (search) {
+    pos = loweredContent.indexOf("<h4>", pos+1)
+    if (pos == -1) {
+      search = false
+    } else {
+      let endPos = loweredContent.indexOf("</h4>", pos)
+      if (endPos == -1) {
+        return -1
+      } else {
+        let candidate = loweredContent.substring(pos + 4, endPos).replace(/[.,\/#!$'%\^&\*;:{}=\-_`~()]/g,"")
+        if (candidate == header) {
+          search = false
+        }
+      }
+    }
+  }
+  return pos
+}
+
 function initPopover(baseURL, useContextualBacklinks, renderLatex) {
   const basePath = baseURL.replace(window.location.origin, "")
   fetchData.then(({ content }) => {
@@ -28,7 +51,7 @@ function initPopover(baseURL, useContextualBacklinks, renderLatex) {
             let cleanedContent = removeMarkdown(linkDest.content)
             if (splitLink.length > 1) {
               let headingName = splitLink[1].replace(/\-/g, " ")
-              let headingIndex = cleanedContent.toLowerCase().indexOf("<h4>" + headingName + "</h4>")
+              let headingIndex = findHeaderWithoutPunctuation(headingName, cleanedContent)
               cleanedContent = cleanedContent.substring(headingIndex, cleanedContent.length)
             }
             const popoverElement = `<div class="popover">

@@ -19,7 +19,7 @@ tags:
 #### All I want is trust
 #### My heart dies by suffering
 &nbsp;
-#### [[notes/hard_wired.md#you-catch-me-when-i-fall|Im afraid to fall again]]
+#### [[notes/hard_wired.md#you-catch-me-when-i-fall|I'm afraid to fall again]]
 &nbsp;
 #### I look into your eyes
 #### And try to see behind the walls
