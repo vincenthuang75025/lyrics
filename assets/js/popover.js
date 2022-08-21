@@ -28,8 +28,7 @@ function initPopover(baseURL, useContextualBacklinks, renderLatex) {
             let cleanedContent = removeMarkdown(linkDest.content)
             if (splitLink.length > 1) {
               let headingName = splitLink[1].replace(/\-/g, " ")
-              let headingIndex = cleanedContent.toLowerCase().indexOf("<b>" + headingName + "</b>")
-              console.log(headingIndex)
+              let headingIndex = cleanedContent.toLowerCase().indexOf("<h4>" + headingName + "</h4>")
               cleanedContent = cleanedContent.substring(headingIndex, cleanedContent.length)
             }
             const popoverElement = `<div class="popover">
