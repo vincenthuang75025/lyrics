@@ -5,62 +5,86 @@ tags:
 weight: -4
 ---
 
-## Editing 
-Quartz runs on top of [Hugo](https://gohugo.io/) so all notes are written in [Markdown](https://www.markdownguide.org/getting-started/).
+##### You can hang on to me if you don’t know
+##### I’ll take you down the line
 
-### Folder Structure
-Here's a rough overview of what's what.
+##### Don’t you move too fast but don’t go too slow
+##### I want your love tonight
 
-**All content in your garden can found in the `/content` folder.** To make edits, you can open any of the files and make changes directly and save it. You can organize content into any folder you'd like.
+##### You can hang on to me if you don’t know
+##### And we’ll go down the line
 
-**To edit the main home page, open `/content/_index.md`.**
+##### Don’t you move too fast but don’t go too slow
+##### I need your love tonight
 
-To create a link between notes in your garden, just create a normal link using Markdown pointing to the document in question. Please note that **all links should be relative to the root `/content` path**. 
+##### I’ll catch you when you fall and fall again
 
-```markdown
-For example, I want to link this current document to `notes/config.md`.
-[A link to the config page](notes/config.md)
-```
+##### You catch me when I fall
+##### I fall again
 
-Similarly, you can put local images anywhere in the `/content` folder.
+##### I’ll catch when you’re falling
+##### Fall again
 
-```markdown
-Example image (source is in content/notes/images/example.png)
-![Example Image](/content/notes/images/example.png)
-```
+##### You can hang on to me if you don’t know
+##### I’ll take you down the line
 
-You can also use wikilinks if that is what you are more comfortable with!
+##### Don’t you move too fast but don’t go too slow
+##### I want your love tonight
 
-### Front Matter
-Hugo is picky when it comes to metadata for files. Make sure that your title is double-quoted and that you have a title defined at the top of your file like so. You can also add tags here as well.
+##### You can hang on to me if you don’t know
+##### And we’ll go down the line
 
-```yaml
----
-title: "Example Title"
-tags:
-- example-tag
----
+##### Don’t you move too fast but don’t go too slow
+##### I need your love tonight
 
-Rest of your content here...
-```
+##### He goes/I go
+##### He knows/I know
+##### He goes/I go
+##### He knows/I know
+##### He goes/I go
+##### He knows/I know
+##### He goes/I go
+##### He knows, it’s only a matter of time
 
-### Obsidian
-I recommend using [Obsidian](http://obsidian.md/) as a way to edit and grow your digital garden. It comes with a really nice editor and graphical interface to preview all of your local files.
+##### Do you know what I need now?
 
-This step is **highly recommended**.
+##### (hold on and let it go)
 
-> 🔗 Step 3: [How to setup your Obsidian Vault to work with Quartz](notes/obsidian.md)
+##### (you can hang on to me if you don’t know)
 
-## Previewing Changes
-This step is purely optional and mostly for those who want to see the published version of their digital garden locally before opening it up to the internet. This is *highly recommended* but not required.
+##### Well, you’re all that I need right now
 
-> 👀 Step 4: [Preview Quartz Changes](notes/preview%20changes.md)
+##### (I’ll catch your fall)
 
-For those who like to live life more on the edge, viewing the garden through Obsidian gets you pretty close to the real thing.
+##### (you can hang on to me if you don’t know)
 
-## Publishing Changes
-Now that you know the basics of managing your digital garden using Quartz, you can publish it to the internet!
+##### And you know what I need now
 
-> 🌍 Step 5: [Hosting Quartz online!](notes/hosting.md)
+##### (hold on and let it go)
+
+##### (you can hang on to me if you don’t know)
+
+##### Oh, you’re all that I need right now
+
+##### So fall
+
+
+____________________________
+Name              Hard Wired
+Artist            Perturbator,  Isabella Goloversic
+Album             Dangerous Days
+Track no          6
+Year              2014
+Original text by  Isabella Goloversic
+
+
+[Usuke](/notes/hosting.md)
+
+[[notes/hosting.md | test]]
+
+[[notes/hosting.md#test]]
+
+[[notes/hosting.md#Enable-Github-Pageseee | notes/hosting.md#Enable-Github-Pageseee]]
+
 
 Having problems? Checkout our [FAQ and Troubleshooting guide](notes/troubleshooting.md).

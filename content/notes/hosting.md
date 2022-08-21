@@ -24,69 +24,49 @@ Head to the 'Settings' tab of your forked repository and go to the 'Pages' tab.
 
 ![Enable GitHub Pages](/notes/images/github-pages.png)*Enable GitHub Pages*
 
-### Pushing Changes
-To see your changes on the internet, we need to push it them to GitHub. Quartz is a `git` repository so updating it is the same workflow as you would follow as if it were just a regular software project.
+# test
+## test
+### test
+For the rise of my distrust
+Please forgive me
+For the rise of my distrust
+Please forgive me
 
-```shell
-# Navigate to Quartz folder
-cd <path-to-quartz>
+But by and by it destroys my inner force
+The first thing in my head when I wake up
+Save my heart
+You are the last thing in my head when I fall in sleep
+You could destroy it
+All I want is just the truth to trust
+All I want is trust
+My heart dies by suffering
 
-# Commit all changes
-git add .
-git commit -m "message describing changes"
+I’m afraid to fall again
 
-# Push to GitHub to update site
-git push origin hugo
-```
+I look into your eyes
+And try to see behind the walls
+The walls of silence
 
-Note: we specifically push to the `hugo` branch here. Our GitHub action automatically runs everytime a push to is detected to that branch and then updates the `master` branch for redeployment.
+My heart in your hands
+I hate the past
+You could destroy it
+But all I need is the truth
+Is just the truth
+You could break me into pieces with one fuckin’ lie
 
-### Setting up the Site
-Now let's get this site up and running. Never hosted a site before? No problem. Have a fancy custom domain you already own or want to subdomain your Quartz? That's easy too.
+Save my heart
 
-Here, we take advantage of GitHub's free page hosting to deploy our site. Change `baseURL` in `/config.toml`. 
+It’s like the kiss of death
 
-Make sure that your `baseURL` has a trailing `/`!
+I kissed the death
+My heart in your hands / it could break again
+So save my fuckin’ heart
 
-[Reference `config.toml` here](https://github.com/jackyzha0/quartz/blob/hugo/config.toml)
+Your words are like paste
+I can’t see their real shape.
 
-```toml
-baseURL = "https://<YOUR-DOMAIN>/"
-```
 
-If you are using this under a subdomain (e.g. `<YOUR-GITHUB-USERNAME>.github.io/quartz`), include the trailing `/`. **You need to do this especially if you are using GitHub!**
-
-```toml
-baseURL = "https://<YOUR-GITHUB-USERNAME>.github.io/quartz/"
-```
-
-Change `cname` in `/.github/workflows/deploy.yaml`. Again, if you don't have a custom domain to use, you can use `<YOUR-USERNAME>.github.io`.
-
-Please note that the `cname` field should *not* have any path `e.g. end with /quartz` or have a trailing `/`.
-
-[Reference `deploy.yaml` here](https://github.com/jackyzha0/quartz/blob/hugo/.github/workflows/deploy.yaml)
-
-```yaml {title=".github/workflows/deploy.yaml"}
-- name: Deploy  
-  uses: peaceiris/actions-gh-pages@v3  
-  with:  
-	github_token: ${{ secrets.GITHUB_TOKEN }} # this can stay as is, GitHub fills this in for us!
-	publish_dir: ./public  
-	publish_branch: master
-	cname: <YOUR-DOMAIN>
-```
-
-Have a custom domain? [Learn how to set it up with Quartz ](notes/custom%20Domain.md).
-
-### Ignoring Files
-Only want to publish a subset of all of your notes? Don't worry, Quartz makes this a simple two-step process.
-
-❌ [Excluding pages from being published](notes/ignore%20notes.md)
-
----
-
-Now that your Quartz is live, let's figure out how to make Quartz really *yours*!
-
-> Step 6: 🎨 [Customizing Quartz](notes/config.md)
-
-Having problems? Checkout our [FAQ and Troubleshooting guide](notes/troubleshooting.md).
+______________________________
+Name    My Heart In Your Hands
+Artist  Breakdown of Sanity
+Album   The Last Sunset
