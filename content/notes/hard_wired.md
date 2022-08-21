@@ -67,13 +67,3 @@ tags:
 #### Oh, you’re all that I need right now
 &nbsp;
 #### So fall
-
-
-____________________________
-Name              
-Artist            Perturbator,  Isabella Goloversic
-Album             Dangerous Days
-Track no          6
-Year              2014
-Original text by  Isabella Goloversic
-
