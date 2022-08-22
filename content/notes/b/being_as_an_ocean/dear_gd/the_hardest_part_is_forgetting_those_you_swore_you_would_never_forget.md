@@ -1,0 +1,43 @@
+---
+title: "The Hardest Part Is Forgetting Those You Swore You Would Never Forget"
+tags:
+- Being As An Ocean
+- Dear G-D...
+---
+&nbsp;
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|There sit two lovers]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|One's eyes intently chasing the other's]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|She doesn't love him anymore]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|But he'll stick it out till the end]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|This he had sworn]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Lying awake in bed]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Feeling the spot on my chest]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Where you used to rest your head]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|You see love's a funny thing the way it lingers in the mind]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|No matter what you do or the passing of time]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|That ember still glows for those lovers behind]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|No matter if it's well remembered]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|That light still shines]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Good times take precedent over every incident]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|No matter how poorly spent]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|So we put on these ridiculous fronts]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Like we were just fooling around]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Our love was only childish fun]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Yet we know different]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|That it meant something to us]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|And that piece still lingers in each one that we've loved]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|So we pick up the pieces]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Try and make a half a whole]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|But in the back of our minds]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|There's quite a different story to be told]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|That Love has kissed our lips]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|That Love has touched our eyes]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|And no matter how sincere]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Love has changed our lives]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|And even if all love has flown]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|We'll have a few scars to proudly show]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Cause at the end of our lives]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|We can say, 'At least we tried']]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Lying awake in bed]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Feeling the spot on my chest]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_blinding_of_false_light.md#i-see-now-i-see-through-the-veil-of-expectation|Where you used to rest your head]]

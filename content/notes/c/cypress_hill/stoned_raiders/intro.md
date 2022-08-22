@@ -1,0 +1,58 @@
+---
+title: "Intro"
+tags:
+- Cypress Hill
+- Stoned Raiders
+---
+&nbsp;
+#### [[notes/t/the_used/the_used/bulimic.md#my-time|Attention!]]
+#### [[notes/t/the_used/the_used/bulimic.md#my-time|The time has come!]]
+&nbsp;
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/deceiver.md#can-you-see-me-behind-the-lids-which-drape-your-eyes|Cypress!]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/deceiver.md#can-you-see-me-behind-the-lids-which-drape-your-eyes|Cyp'-,  Cypress!]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/deceiver.md#can-you-see-me-behind-the-lids-which-drape-your-eyes|Cyp'-,  Cypress!]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/deceiver.md#can-you-see-me-behind-the-lids-which-drape-your-eyes|Cypress!]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/deceiver.md#can-you-see-me-behind-the-lids-which-drape-your-eyes|Cyp'-, Cyp'-!]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/deceiver.md#can-you-see-me-behind-the-lids-which-drape-your-eyes|Cypress!  Cypress!]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/deceiver.md#can-you-see-me-behind-the-lids-which-drape-your-eyes|Cypress!  Cypress!]]
+&nbsp;
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Yes, yes y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Yes y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Check, check it y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|We back, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|It's that Cypress, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|We back, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|CHECK IT!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|All y'all pretty-suckers  tell 'em to go away  youkno'msayin'?]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|It's the bloody crew!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|That's right y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|We back y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Yes, yes y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Say whatchu gonna do now? ("Cypress, Cypress, Cypress Hill!")]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|That's right, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|We back, yo!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Soul Assassins, yo!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Non stop, tick-TOCK! ("Cypress, Cypress, Cypress Hill!")]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|That's right y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Let me thug y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Whatchu wanna do? ("Cypress, Cypress, Cypress Hill!")]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|That's right, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Cypress Hill, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Simply back y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|One more time y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Crippin' out y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Can't give a shit, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|CHECK IT OUT!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Check it out! Check it out! Check it out, y'all! ("Cypress, Cypress, Cypress Hill!")]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Simply back y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Cypress Hill, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|That's right, y'all! ("Cypress, Cypress, Cypress Hill!")]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Turn the right, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Better smoke y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Cypress Hill, y'all! Cypress Hill, y'all!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Soul Assassins, yo we don't stop!]]
+#### [[notes/n/norma_jean/redeemer/songs_sound_much_sadder.md#our-hopes-and-dreams-our-worst-nightmares|Soul Assassins back  we don't stop!]]
+&nbsp;
+#### [[notes/l/linkin_park/a_thousand_suns/wisdom_justice_and_love.md#i-come-to-this-magnificent-house-of-worship-tonight|That's right!]]
+#### [[notes/l/linkin_park/a_thousand_suns/wisdom_justice_and_love.md#i-come-to-this-magnificent-house-of-worship-tonight|This is comin' to you directly from the Hill, yo!]]
+#### [[notes/l/linkin_park/a_thousand_suns/wisdom_justice_and_love.md#i-come-to-this-magnificent-house-of-worship-tonight|All rights reserved.]]

@@ -1,0 +1,72 @@
+---
+title: "Beta Male Strategies"
+tags:
+- JPEGMAFIA
+- All My Heroes Are Cornballs
+---
+&nbsp;
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Hahahahaha, haha]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Mmh (Oh), mmh, mmh, mmh]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Ain't no details, ain't no conversation]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Ain't no real money in rap, nigga]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|It's all retail, shit, huh]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Niggas be talkin' shit (Talkin' shit)]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|I tell 'em, "Pull up, bitch"]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Cease to exist (Alright)]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|You gon' cease to exist]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Don't get exposed, nigga]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Keep code, nigga]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Only in it for the cash, I'm a gold digger (Uh)]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Shitpost, nigga]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|When I die, my tombstone's Twitter, Twitter]]
+#### [[notes/s/slipknot/all_hope_is_gone/child_of_burning_time.md#my-isolation-is-my-course|Sayin']]
+&nbsp;
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Ain't no details (Nah), ain't no conversations (Nah)]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Ain't no real money in rap (Shut up), it's all retail (Facts)]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|It's all outrage (For real)]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Y'all put this pussy in a prime position (For real)]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Young Peggy, I'm a false prophet]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Bringin' white folks this new religion]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|My fans need new addictions (Sayin')]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Niggas be talking shit (Talkin' shit)]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|I tell 'em, "Pull up, bitch"]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Cease to exist (Exist, man)]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Don't get exposed, nigga (Bah)]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Huh, keep code, nigga]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Only in it for the cash, I'm a gold digger (Ooh)]]
+#### [[notes/o/opeth/damnation/to_rid_the_disease.md#theres-innocence-torn-from-its-maker|Shitpost, nigga]]
+&nbsp;
+#### [[notes/m/mad_season/above/artificial_red.md#artificial-red-smoke-poison-consumed|Aight, we gon' do it like this]]
+#### [[notes/m/mad_season/above/artificial_red.md#artificial-red-smoke-poison-consumed|Say what you said on Twitter right now (Right now, exactly, nigga)]]
+#### [[notes/m/mad_season/above/artificial_red.md#artificial-red-smoke-poison-consumed|You only brave with a board and a mouse (Uh-huh)]]
+#### [[notes/m/mad_season/above/artificial_red.md#artificial-red-smoke-poison-consumed|You wasn't talkin' when I put you in the ground (Sucker)]]
+#### [[notes/m/mad_season/above/artificial_red.md#artificial-red-smoke-poison-consumed|Don't leave the house]]
+#### [[notes/m/mad_season/above/artificial_red.md#artificial-red-smoke-poison-consumed|Don't get capped by a nigga in a muhfuckin' gown]]
+&nbsp;
+#### [[notes/w/wrangler/white_glue/stupid.md#ah-ah-ah|Fuck (Huh, huh)]]
+#### [[notes/w/wrangler/white_glue/stupid.md#ah-ah-ah|Fuck]]
+#### [[notes/w/wrangler/white_glue/stupid.md#ah-ah-ah|Fuck, fuck (Oh)]]
+#### [[notes/w/wrangler/white_glue/stupid.md#ah-ah-ah|Fuck]]
+#### [[notes/w/wrangler/white_glue/stupid.md#ah-ah-ah|Fuck, fuck, fuck]]
+#### [[notes/w/wrangler/white_glue/stupid.md#ah-ah-ah|Ah, ah]]
+#### [[notes/w/wrangler/white_glue/stupid.md#ah-ah-ah|Ah (Thank God)]]
+&nbsp;
+#### [[notes/h/heaven_shall_burn/iconoclast_part_1__the_final_resistance/endzeit.md#were-fighting-to-the-last|These niggas fragile (Thank God)]]
+#### [[notes/h/heaven_shall_burn/iconoclast_part_1__the_final_resistance/endzeit.md#were-fighting-to-the-last|Rap been so good to me, I hope it get me canceled (Oh)]]
+#### [[notes/h/heaven_shall_burn/iconoclast_part_1__the_final_resistance/endzeit.md#were-fighting-to-the-last|Y'all hope that I'll be dead soon (Huh)]]
+#### [[notes/h/heaven_shall_burn/iconoclast_part_1__the_final_resistance/endzeit.md#were-fighting-to-the-last|Ooh, bitch, I must be scarin' you (Hey, oh)]]
+#### [[notes/h/heaven_shall_burn/iconoclast_part_1__the_final_resistance/endzeit.md#were-fighting-to-the-last|I packed the fixer in case you bitches want a scandal, I came (Huh)]]
+#### [[notes/h/heaven_shall_burn/iconoclast_part_1__the_final_resistance/endzeit.md#were-fighting-to-the-last|Glock with the dick, y'all be typin' it (Yeah)]]
+#### [[notes/h/heaven_shall_burn/iconoclast_part_1__the_final_resistance/endzeit.md#were-fighting-to-the-last|But y'all ain't gon' do shit (Sit)]]
+#### [[notes/h/heaven_shall_burn/iconoclast_part_1__the_final_resistance/endzeit.md#were-fighting-to-the-last|In your pussy ass life]]
+&nbsp;
+#### [[notes/k/korn/greatest_hits_vol_1/word_up.md#oh|Fuck]]
+#### [[notes/k/korn/greatest_hits_vol_1/word_up.md#oh|Fuck]]
+#### [[notes/k/korn/greatest_hits_vol_1/word_up.md#oh|Fuck, fuck (Oh)]]
+#### [[notes/k/korn/greatest_hits_vol_1/word_up.md#oh|Fuck]]
+#### [[notes/k/korn/greatest_hits_vol_1/word_up.md#oh|Fuck, fuck, fuck]]
+&nbsp;
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/quoth_the_raven.md#and-death-will-smile-his-barefaced-smile|Hahaha, hahahaha]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/quoth_the_raven.md#and-death-will-smile-his-barefaced-smile|Ha, bitch]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/quoth_the_raven.md#and-death-will-smile-his-barefaced-smile|Ha, mmh]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/quoth_the_raven.md#and-death-will-smile-his-barefaced-smile|Ha, yeah]]

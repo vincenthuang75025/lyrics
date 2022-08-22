@@ -1,0 +1,8 @@
+---
+title: "Some Kind of Hope"
+tags:
+- Stick To Your Guns
+- The Hope Division
+---
+&nbsp;
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/anodyne_sea.md#for-once-i-have-stood-no-one-will-know-but-alone-i-was-born-and-alone-we-must-go|In a world that can't, we can. in a world that hates, we understand. we are some kind of love we're at the end of our rope we are some kind of hate we are some kind of hope in a world that cant, we can. in a world that hates, we understand. in a world that wont, well we've got the world by the throat we are some kind of hope - ill see through every inch of doubt i am the moon when the sun goes down, and ill reflect its shine its my life. i will define. - "i woke up today and felt my age for the first time, in both my mind and body. and my thoughts are less of fitting in and more of being a better man." mike "owen" kinsella i just want to be a better man. - a wrecking ball of warmth is beating in my chest, and my head is buried in the depths of its gentleness. oh god. i am alive. keeping warm in a cold world]]

@@ -1,0 +1,67 @@
+---
+title: "Replace My Heart"
+tags:
+- The Killing Tree
+- Bury Me At Make-Out Creek
+---
+&nbsp;
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|Reap my soul.]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|I whisper cruel words that]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|only I can hear.]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|I dream in a never ending line of tragedy.]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|Reap my soul]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|disposition neckbraced]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|by insecurity.]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|Let freedom]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|ring in my ears]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|painfully. And muffle this bell with the]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|hand of pessimism]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_write_sins_not_tragedies.md#i-chime-in-with-a-havent-you-people-ever-heard-of|and render it useless.]]
+&nbsp;
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|you can't stop this thought]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|like a passing trainwreck]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|it barrels through my brain, paralyzing.]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|In this state your words]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|become the daggers and I'm left bleeding.]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|These wounds of trust I know]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|as tunnel vision creates]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|my only sanctuary. As hope manifests]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|itself in the thought]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|of an end. A dying breath.]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|Reap my soul.]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|I'm not sure I can go on.]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|So drag me down]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|into your world.]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|Replace my heart]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|with your machine]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#im-going-down-to-the-crossroads-gonna-flag-a-ride|and see if it still bleeds.]]
+&nbsp;
+#### [[notes/s/stick_to_your_guns/diamond/such_pain.md#i-am-the-enemy|Become my enemy.]]
+&nbsp;
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|Reap my soul]]
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|My eyeslids become my enemies]]
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|I fight them to save myself]]
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|from the scene.]]
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|As the groundwork for my nightmares]]
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|is created]]
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|I stand helpless to this chaos in my head]]
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|and yet the chaos stands beautifully now]]
+#### [[notes/s/symphony_x/iconoclast/bastards_of_the_machine.md#be-a-saint-for-those-in-need|like a carefully designed city of conformity.]]
+&nbsp;
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|And I'll keep you awake tonight]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|and I'll hurt you]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|until sunrise]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|in this attempt to displace]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|this pushing attack on my senses.]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|Reap my soul]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|I'm not sure I can go on.]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|Now drag me down]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|into your world.]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|Replace my heart with]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|your machine]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|and see if it still bleeds]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|I'll cover my tracks]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|so you can't trace]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#hate-to-twist-your-mind-but-god-aint-on-your-side|this accident to me.]]
+&nbsp;
+#### [[notes/t/type_o_negative/october_rust/my_girlfriends_girlfriend.md#now|Drag me down now.]]

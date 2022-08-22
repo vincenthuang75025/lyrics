@@ -1,0 +1,40 @@
+---
+title: "Pillow Talk"
+tags:
+- The Killing Tree
+- Bury Me At Make-Out Creek
+---
+&nbsp;
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Dead alive.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Sleep walking through these last few weeks,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|and still you persist to suffocate the last]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|breath of life from my lungs.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Now my last thought was of you screaming my name.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|The anguish in your voice as I collapse in pain.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Don't hold your breath for me, because I will let you down.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Now as I'm losing my voice, never found.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|And if you get there,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|don't even bother calling,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|cause by the time you read this.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Instill in me your dignity.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|With pride you wast another life of possibility.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Run the clock down on us.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|I live in the corner you've backed me into.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|And if you get there,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|don't even bother calling,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|cause by the time you read this,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|I'll be gone.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|And when I said I loved you,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|I swear to god I lied.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Die motherfucker,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|you and your reason why.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Am I tearing apart your life,]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|because you're tearing apart mine.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Now you won't see what I have made for you.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Inside I gave you everything.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Rely on me until I shatter.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|Instill with me the peace you found.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|And so I'm never coming back, until you're gone.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|I can't save you, I can't save you.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|But I want to be hopeful.]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|I don't know you, I don't know you, but I want to.]]

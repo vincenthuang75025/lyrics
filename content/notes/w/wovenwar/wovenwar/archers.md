@@ -1,0 +1,63 @@
+---
+title: "Archers"
+tags:
+- Wovenwar
+- Wovenwar
+---
+&nbsp;
+#### [[notes/v/vhs_glitch/moral_decay/same_different_world.md#cant-feel-my-pain-my-energy-is-low|We spent a decade building]]
+#### [[notes/v/vhs_glitch/moral_decay/same_different_world.md#cant-feel-my-pain-my-energy-is-low|A band of brothers to the bone]]
+#### [[notes/v/vhs_glitch/moral_decay/same_different_world.md#cant-feel-my-pain-my-energy-is-low|And it showed]]
+&nbsp;
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/the_pain_of_separation.md#how-can-i-bear-this-any-longer|From the reef's kiss calling]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/the_pain_of_separation.md#how-can-i-bear-this-any-longer|To the resistance rise we rose]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/the_pain_of_separation.md#how-can-i-bear-this-any-longer|We walked through fire blind]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/the_pain_of_separation.md#how-can-i-bear-this-any-longer|The march echoes for all time]]
+&nbsp;
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/the_pain_of_separation.md#how-can-i-bear-this-any-longer|But now the seasons changing]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/the_pain_of_separation.md#how-can-i-bear-this-any-longer|The turning tide]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/the_pain_of_separation.md#how-can-i-bear-this-any-longer|I've raised my sail to coming]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/the_pain_of_separation.md#how-can-i-bear-this-any-longer|Storm or calm alike]]
+&nbsp;
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/hell_bound_heart.md#it-was-your-hell-bound-heart-that-tore-me-apart|We are the humble phalanx]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/hell_bound_heart.md#it-was-your-hell-bound-heart-that-tore-me-apart|To raise the arrogance in foes]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/hell_bound_heart.md#it-was-your-hell-bound-heart-that-tore-me-apart|And it showed]]
+&nbsp;
+#### [[notes/s/slipknot/vol_3__the_subliminal_verses/duality.md#i-have-screamed-until-my-veins-collapsed|We found a fraud in a bishop]]
+#### [[notes/s/slipknot/vol_3__the_subliminal_verses/duality.md#i-have-screamed-until-my-veins-collapsed|And built a nation of flawed sons]]
+#### [[notes/s/slipknot/vol_3__the_subliminal_verses/duality.md#i-have-screamed-until-my-veins-collapsed|We walked through fire blind]]
+#### [[notes/s/slipknot/vol_3__the_subliminal_verses/duality.md#i-have-screamed-until-my-veins-collapsed|The march echoes for all time]]
+&nbsp;
+#### But now the seasons changing
+#### The turning tide
+#### I've raised my sail to coming
+#### Storm or calm alike
+&nbsp;
+#### [[notes/s/slipknot/vol_3__the_subliminal_verses/duality.md#i-have-screamed-until-my-veins-collapsed|And though my vessels lone-manned with brazen broken hull]]
+#### [[notes/s/slipknot/vol_3__the_subliminal_verses/duality.md#i-have-screamed-until-my-veins-collapsed|The waves will never take an]]
+#### [[notes/s/slipknot/vol_3__the_subliminal_verses/duality.md#i-have-screamed-until-my-veins-collapsed|Armored archer core]]
+#### [[notes/s/slipknot/vol_3__the_subliminal_verses/duality.md#i-have-screamed-until-my-veins-collapsed|Armored archer core]]
+&nbsp;
+#### [[notes/o/opeth/watershed/burden.md#if-death-should-take-me-now|A means to believe]]
+#### [[notes/o/opeth/watershed/burden.md#if-death-should-take-me-now|A reverie I couldn't reach]]
+#### [[notes/o/opeth/watershed/burden.md#if-death-should-take-me-now|Never made a difference to me]]
+&nbsp;
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/behind_me_lies_another_fallen_soldier.md#i-want-to-bring-you-all-that-is-in-my-heart|Go on, our brother]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/behind_me_lies_another_fallen_soldier.md#i-want-to-bring-you-all-that-is-in-my-heart|You've only just begun]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/behind_me_lies_another_fallen_soldier.md#i-want-to-bring-you-all-that-is-in-my-heart|Live long with honor]]
+#### [[notes/a/as_i_lay_dying/frail_words_collapse/behind_me_lies_another_fallen_soldier.md#i-want-to-bring-you-all-that-is-in-my-heart|From our fire you are born]]
+&nbsp;
+#### But now the seasons changing
+#### The turning tide
+#### I've raised my sail to coming
+#### Storm or calm alike
+&nbsp;
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#what-have-i-become-my-sweetest-friend|And though my vessels lone-manned with brazen broken hull]]
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#what-have-i-become-my-sweetest-friend|The waves will never take an]]
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#what-have-i-become-my-sweetest-friend|Armored archer core]]
+&nbsp;
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#all-i-want-is-to-kill|But now the seasons changing]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#all-i-want-is-to-kill|The turning tide (The turning tide)]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#all-i-want-is-to-kill|I've raised my sail to coming]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#all-i-want-is-to-kill|Storm or calm alike (Storm or calm alike)]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#all-i-want-is-to-kill|Storm or calm alike]]

@@ -1,0 +1,17 @@
+---
+title: "Schiff Ahoi"
+tags:
+- We Butter The Bread With Butter
+- Der Tag an dem die Welt unterging
+---
+&nbsp;
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Kr  h Kr  h.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Raaaar Raar.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Rauuusch.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Kr   h Kr  h.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Raw Raw Raar.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Chiep Chiep.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Kr  h.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Kr  h.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Rauuusch.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/father_of_the_wolf.md#with-dark-deception-in-his-soul|Rar.]]

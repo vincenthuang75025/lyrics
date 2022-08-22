@@ -1,0 +1,60 @@
+---
+title: "Undreamt"
+tags:
+- Zanias
+- Unearthed
+---
+&nbsp;
+#### [[notes/n/new_model_army/impurity/space.md#as-moses-stands-and-turns-his-gaze-away-from-the-feuding-tribes|Should've known and shouldn't have said,]]
+#### [[notes/n/new_model_army/impurity/space.md#as-moses-stands-and-turns-his-gaze-away-from-the-feuding-tribes|kept the cards close to my chest.]]
+#### [[notes/n/new_model_army/impurity/space.md#as-moses-stands-and-turns-his-gaze-away-from-the-feuding-tribes|But against it all I can't control]]
+#### [[notes/n/new_model_army/impurity/space.md#as-moses-stands-and-turns-his-gaze-away-from-the-feuding-tribes|that I'm a human and I need to be loved.]]
+#### [[notes/n/new_model_army/impurity/space.md#as-moses-stands-and-turns-his-gaze-away-from-the-feuding-tribes|I need to be loved.]]
+&nbsp;
+#### [[notes/t/the_killing_tree/bury_me_at_makeout_creek/replace_my_heart.md#reap-my-soul|If the game is there to be played]]
+#### [[notes/t/the_killing_tree/bury_me_at_makeout_creek/replace_my_heart.md#reap-my-soul|I wanna play it with you.]]
+#### [[notes/t/the_killing_tree/bury_me_at_makeout_creek/replace_my_heart.md#reap-my-soul|If the game is there to be played]]
+#### [[notes/t/the_killing_tree/bury_me_at_makeout_creek/replace_my_heart.md#reap-my-soul|I wanna play it with you (with you).]]
+&nbsp;
+#### [[notes/d/deadmau5/get_scraped/careless.md#youre-a-walking-disaster|Every time you're walking by]]
+#### [[notes/d/deadmau5/get_scraped/careless.md#youre-a-walking-disaster|she's at your side.]]
+#### [[notes/d/deadmau5/get_scraped/careless.md#youre-a-walking-disaster|Don't you look me in the eye.]]
+#### [[notes/d/deadmau5/get_scraped/careless.md#youre-a-walking-disaster|Don't look me in the eye.]]
+&nbsp;
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|If the game is there to be played]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|I wanna play it with you.]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|(We're gonna lose, we're gonna lose)]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|If the game is there to be played]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|I wanna play it with you (with you).]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|If the game is there to be played]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|I wanna play it with you (with you).]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|If the game is there to be played]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|I wanna play it with you (with you).]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|If the game is there to be played]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|I wanna play it with you (with you).]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|If the game is there to be played]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|I wanna play it with you.]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|If the game is there to be played]]
+#### [[notes/l/la_dispute/wildlife/i_see_everything.md#january-19|I wanna play it with you (with you).]]
+&nbsp;
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|to the emptiness.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|to the emptiness.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|to the emptiness.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|to the emptiness]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|The emptiness.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|to the emptiness.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|to the emptiness.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|to the emptiness.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|to the emptiness]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|The emptiness.]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|Always second best]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|To the emptiness]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/we_shall_destroy.md#fear-will-not-pierce-our-hearts|The emptiness.]]

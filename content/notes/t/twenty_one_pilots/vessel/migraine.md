@@ -1,0 +1,84 @@
+---
+title: "Migraine"
+tags:
+- Twenty One Pilots
+- Vessel
+---
+&nbsp;
+#### [[notes/i/iron_maiden/brave_new_world/the_fallen_angel.md#you-and-only-god-will-know-what-can-be-done|Am I the only one I know]]
+#### [[notes/i/iron_maiden/brave_new_world/the_fallen_angel.md#you-and-only-god-will-know-what-can-be-done|Waging my wars behind my face and above my throat?]]
+#### [[notes/i/iron_maiden/brave_new_world/the_fallen_angel.md#you-and-only-god-will-know-what-can-be-done|Shadows will scream that I'm alone, lone, lone]]
+&nbsp;
+#### [[notes/e/eminem/the_marshall_mathers_lp_2/rap_god.md#school-flunky-pill-junky|I-I-I-I've got a migraine]]
+#### [[notes/e/eminem/the_marshall_mathers_lp_2/rap_god.md#school-flunky-pill-junky|And my pain will range from up, down, and sideways]]
+#### [[notes/e/eminem/the_marshall_mathers_lp_2/rap_god.md#school-flunky-pill-junky|Thank God it's Friday 'cause Fridays will always]]
+#### [[notes/e/eminem/the_marshall_mathers_lp_2/rap_god.md#school-flunky-pill-junky|Be better than Sundays 'cause Sundays are my suicide days]]
+&nbsp;
+#### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#i-slay-punks-who-dont-know-their-own-identity|I don't know why they always seem so dismal]]
+#### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#i-slay-punks-who-dont-know-their-own-identity|Thunderstorms, clouds, snow, and a slight drizzle]]
+#### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#i-slay-punks-who-dont-know-their-own-identity|Whether it's the weather or the letters by my bed]]
+#### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#i-slay-punks-who-dont-know-their-own-identity|Sometimes death seems better than the migraine in my head]]
+&nbsp;
+#### [[notes/k/kendrick_lamar/good_kid_maad_city/backseat_freestyle.md#goddamn-i-feel-amazing-damn-im-in-the-matrix|Let it be said what the headache represents]]
+#### [[notes/k/kendrick_lamar/good_kid_maad_city/backseat_freestyle.md#goddamn-i-feel-amazing-damn-im-in-the-matrix|It's me defending in suspense, it's me suspended in a defenseless test]]
+#### [[notes/k/kendrick_lamar/good_kid_maad_city/backseat_freestyle.md#goddamn-i-feel-amazing-damn-im-in-the-matrix|Being tested by a ruthless examinant]]
+#### [[notes/k/kendrick_lamar/good_kid_maad_city/backseat_freestyle.md#goddamn-i-feel-amazing-damn-im-in-the-matrix|That's represented best by my depress ;]]
+&nbsp;
+#### [[notes/m/massive_attack/mezzanine/mezzanine.md#im-a-little-curious-of-you-in-crowded-scenes|;ing thoughts]]
+#### [[notes/m/massive_attack/mezzanine/mezzanine.md#im-a-little-curious-of-you-in-crowded-scenes|I do not have writer's block, my writer just hates the clock]]
+#### [[notes/m/massive_attack/mezzanine/mezzanine.md#im-a-little-curious-of-you-in-crowded-scenes|It will not let me sleep, I guess I'll sleep when I'm dead]]
+#### [[notes/m/massive_attack/mezzanine/mezzanine.md#im-a-little-curious-of-you-in-crowded-scenes|And sometimes death seems better than the migraine in my head]]
+&nbsp;
+#### [[notes/c/crying_vessel/necrozine/something_to_me.md#welcome-to-your-body|Am I the only one I know]]
+#### [[notes/c/crying_vessel/necrozine/something_to_me.md#welcome-to-your-body|Waging my wars behind my face and above my throat?]]
+#### [[notes/c/crying_vessel/necrozine/something_to_me.md#welcome-to-your-body|Shadows will scream that I'm alone]]
+#### [[notes/c/crying_vessel/necrozine/something_to_me.md#welcome-to-your-body|But I know we've made it this far, kid]]
+&nbsp;
+#### [[notes/h/hollywood_undead/swan_songs/everywhere_i_go.md#when-i-start-drinking-my-dick-does-all-my-thinking|I am not as fine as I seem, pardon]]
+#### [[notes/h/hollywood_undead/swan_songs/everywhere_i_go.md#when-i-start-drinking-my-dick-does-all-my-thinking|Me for yelling, I'm telling you green, gardens]]
+#### [[notes/h/hollywood_undead/swan_songs/everywhere_i_go.md#when-i-start-drinking-my-dick-does-all-my-thinking|Are not what's growing in my psyche, it's a different me]]
+#### [[notes/h/hollywood_undead/swan_songs/everywhere_i_go.md#when-i-start-drinking-my-dick-does-all-my-thinking|A difficult beast feasting on burnt down trees]]
+&nbsp;
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#rock--is-deader-than-dead|Freeze frame please, let me paint a mental picture portrait]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#rock--is-deader-than-dead|Something you won't forget, it's all about my forehead]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#rock--is-deader-than-dead|And how it is a door that holds back contents]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#rock--is-deader-than-dead|That make Pandora's Box's contents look nonviolent]]
+&nbsp;
+#### [[notes/n/nirvana/in_utero/heartshaped_box.md#she-eyes-me-like-a-pisces-when-i-am-weak|Behind my eyelids are islands of violence]]
+#### [[notes/n/nirvana/in_utero/heartshaped_box.md#she-eyes-me-like-a-pisces-when-i-am-weak|My mind's shipwrecked, this is the only land my mind could]]
+#### [[notes/n/nirvana/in_utero/heartshaped_box.md#she-eyes-me-like-a-pisces-when-i-am-weak|Find, I did not know it was such a violent island]]
+#### [[notes/n/nirvana/in_utero/heartshaped_box.md#she-eyes-me-like-a-pisces-when-i-am-weak|Full of tidal waves, suicidal crazed lions]]
+&nbsp;
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people|They're trying to eat me, blood running down their chin]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people|And I know that I can fight or I can let the lion win]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people|I begin to assemble what weapons I can find]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people|'Cause sometimes to stay alive you got to kill your mind]]
+&nbsp;
+#### Am I the only one I know
+#### Waging my wars behind my face and above my throat?
+#### Shadows will scream that I'm alone
+#### But I know we've made it this far, kid
+&nbsp;
+#### [[notes/m/monster_magnet/powertrip/space_lord.md#theres-a-car-in-the-field-now-in-a-column-of-flame|And I will say that we should take a day to break away]]
+#### [[notes/m/monster_magnet/powertrip/space_lord.md#theres-a-car-in-the-field-now-in-a-column-of-flame|From all the pain our brain has made]]
+#### [[notes/m/monster_magnet/powertrip/space_lord.md#theres-a-car-in-the-field-now-in-a-column-of-flame|The game is not played alone]]
+&nbsp;
+#### [[notes/d/dani_shay/rise_from_the_dead/new_world.md#i-wonder-why-were-still-falling-for-the-same-old-tricks|And I will say that we should take a moment and hold it]]
+#### [[notes/d/dani_shay/rise_from_the_dead/new_world.md#i-wonder-why-were-still-falling-for-the-same-old-tricks|And keep it frozen and know that]]
+#### [[notes/d/dani_shay/rise_from_the_dead/new_world.md#i-wonder-why-were-still-falling-for-the-same-old-tricks|Life has a hopeful undertone]]
+&nbsp;
+#### And I will say that we should take a day to break away
+#### From all the pain our brain has made
+#### The game is not played alone
+&nbsp;
+#### And I will say that we should take a moment and hold it
+#### And keep it frozen and know that
+#### Life has a hopeful undertone
+&nbsp;
+#### Am I the only one I know
+#### Waging my wars behind my face and above my throat?
+#### Shadows will scream that I'm alone
+#### But I know we've made it this far, kid
+&nbsp;
+#### [[notes/t/the_twilight_garden/hope/hope.md#far-away-far-away|Made it this far]]
+#### [[notes/t/the_twilight_garden/hope/hope.md#far-away-far-away|Made it this]]

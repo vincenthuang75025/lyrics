@@ -1,0 +1,44 @@
+---
+title: "Nightcall"
+tags:
+- Kavinsky
+- OutRun
+---
+&nbsp;
+#### [[notes/a/archive/you_all_look_the_same_to_me/goodbye.md#i-know-im-gonna-look|I'm giving you a night call to tell you how I feel]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/goodbye.md#i-know-im-gonna-look|(We'll go all, all, all night long)]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/goodbye.md#i-know-im-gonna-look|I want to drive you through the night, down the hills]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/goodbye.md#i-know-im-gonna-look|(We'll go all, all, all night long)]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/goodbye.md#i-know-im-gonna-look|I'm gonna tell you something you don't want to hear]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/goodbye.md#i-know-im-gonna-look|(We'll go all, all, all night long)]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/goodbye.md#i-know-im-gonna-look|I'm gonna show you where it's dark, but have no fear]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/goodbye.md#i-know-im-gonna-look|(We'll go all, all, all night long)]]
+&nbsp;
+#### [[notes/a/alice_in_chains/facelift/sea_of_sorrow.md#mind-of-destructive-taste|There's something inside you]]
+#### [[notes/a/alice_in_chains/facelift/sea_of_sorrow.md#mind-of-destructive-taste|It's hard to explain]]
+#### [[notes/a/alice_in_chains/facelift/sea_of_sorrow.md#mind-of-destructive-taste|They're talking about you, boy]]
+#### [[notes/a/alice_in_chains/facelift/sea_of_sorrow.md#mind-of-destructive-taste|But you're still the same]]
+&nbsp;
+#### There's something inside you
+#### It's hard to explain
+#### They're talking about you, boy
+#### But you're still the same
+&nbsp;
+#### I'm giving you a night call to tell you how I feel
+#### (We'll go all, all, all night long)
+#### I want to drive you through the night, down the hills
+#### (We'll go all, all, all night long)
+#### I'm gonna tell you something you don't want to hear
+#### (We'll go all, all, all night long)
+#### I'm gonna show you where it's dark, but have no fear
+#### (We'll go all, all, all night long)
+&nbsp;
+#### There's something inside you
+#### It's hard to explain
+#### They're talking about you, boy
+#### But you're still the same
+&nbsp;
+#### There's something inside you
+#### It's hard to explain
+#### They're talking about you, boy
+#### But you're still the same

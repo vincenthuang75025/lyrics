@@ -1,0 +1,208 @@
+---
+title: "Murder Most Foul"
+tags:
+- Bob Dylan
+- Rough and Rowdy Ways
+---
+&nbsp;
+#### [[notes/l/linkin_park/one_more_light/nobody_can_save_me.md#at-first-hallucination|It was a dark day in Dallas, November '63,]]
+#### [[notes/l/linkin_park/one_more_light/nobody_can_save_me.md#at-first-hallucination|a day that will live on in infamy.]]
+#### [[notes/l/linkin_park/one_more_light/nobody_can_save_me.md#at-first-hallucination|President Kennedy was a-ridin' high,]]
+#### [[notes/l/linkin_park/one_more_light/nobody_can_save_me.md#at-first-hallucination|good day to be livin' and a good day to die,]]
+#### [[notes/l/linkin_park/one_more_light/nobody_can_save_me.md#at-first-hallucination|being led to the slaughter like a sacrificial lamb.]]
+#### [[notes/l/linkin_park/one_more_light/nobody_can_save_me.md#at-first-hallucination|He said, "Wait a minute, boys, you know who I am?"]]
+#### [[notes/l/linkin_park/one_more_light/nobody_can_save_me.md#at-first-hallucination|"Of course we do, we know who you are!"]]
+#### [[notes/l/linkin_park/one_more_light/nobody_can_save_me.md#at-first-hallucination|Then they blew off his head while he was still in the car.]]
+&nbsp;
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|Shot down like a dog in broad daylight,]]
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|was a matter of timing and the timing was right.]]
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|You got unpaid debts, we've come to collect.]]
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|We're gonna kill you with hatred, without any respect.]]
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|We'll mock you and shock you and we'll put it in your face.]]
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|We've already got someone here]]
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|to take your place.]]
+&nbsp;
+#### [[notes/d/dead_astronauts/constellations/parallel_universes.md#thrown-in-space-i-never-wanted-this|The day they blew out the brains of the king,]]
+#### [[notes/d/dead_astronauts/constellations/parallel_universes.md#thrown-in-space-i-never-wanted-this|thousands were watching, no one saw a thing.]]
+#### [[notes/d/dead_astronauts/constellations/parallel_universes.md#thrown-in-space-i-never-wanted-this|It happened so quickly, so quick, by surprise,]]
+#### [[notes/d/dead_astronauts/constellations/parallel_universes.md#thrown-in-space-i-never-wanted-this|right there in front of everyone's eyes.]]
+#### [[notes/d/dead_astronauts/constellations/parallel_universes.md#thrown-in-space-i-never-wanted-this|Greatest magic trick ever under the sun,]]
+#### [[notes/d/dead_astronauts/constellations/parallel_universes.md#thrown-in-space-i-never-wanted-this|perfectly executed, skillfully done.]]
+#### [[notes/d/dead_astronauts/constellations/parallel_universes.md#thrown-in-space-i-never-wanted-this|Wolfman, oh, Wolfman, oh, Wolfman, howl.]]
+#### [[notes/d/dead_astronauts/constellations/parallel_universes.md#thrown-in-space-i-never-wanted-this|Rub-a-dub-dub, it's a murder most foul.]]
+&nbsp;
+#### [[notes/e/emarosa/versus/same_tight_rope.md#when-all-is-said-and-done|Hush, little children, you'll understand]]
+#### [[notes/e/emarosa/versus/same_tight_rope.md#when-all-is-said-and-done|The Beatles are comin', they're gonna hold your hand.]]
+#### [[notes/e/emarosa/versus/same_tight_rope.md#when-all-is-said-and-done|Slide down the banister, go get your coat,]]
+#### [[notes/e/emarosa/versus/same_tight_rope.md#when-all-is-said-and-done|ferry 'cross the Mersey and go for the throat.]]
+&nbsp;
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#you-no-turning-back-now|There's three bums comin' all dressed in rags,]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#you-no-turning-back-now|pick up the pieces and lower the flags.]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#you-no-turning-back-now|I'm goin' to Woodstock, it's the Aquarian Age.]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#you-no-turning-back-now|Then I'll go over to Altamont and sit near the stage.]]
+&nbsp;
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/jesus_christ.md#i-know-youll-come-in-the-night-like-a-thief|Put your head out the window, let the good times roll.]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/jesus_christ.md#i-know-youll-come-in-the-night-like-a-thief|There's a party going on behind the grassy knoll.]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/jesus_christ.md#i-know-youll-come-in-the-night-like-a-thief|Stack up the bricks, pour the cement.]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/jesus_christ.md#i-know-youll-come-in-the-night-like-a-thief|Don't say Dallas don't love you, Mr. President.]]
+&nbsp;
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|Put your foot in the tank and then step on the gas,]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|try to make it to the triple underpass.]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|Blackface singer, whiteface clown,]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|better not show your faces after the sun goes down.]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|Up in the red-light district, they've got cop on the beat]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|living in a nightmare on Elm Street.]]
+&nbsp;
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#youre-laying-here-with-a-beds-eye-view-of-a-body-that-no-longer-belongs-to-you|When you're down on Deep Ellum,]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#youre-laying-here-with-a-beds-eye-view-of-a-body-that-no-longer-belongs-to-you|put your money in your shoe.]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#youre-laying-here-with-a-beds-eye-view-of-a-body-that-no-longer-belongs-to-you|Don't ask what your country can do for you.]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#youre-laying-here-with-a-beds-eye-view-of-a-body-that-no-longer-belongs-to-you|Cash on the barrelhead, money to burn,]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#youre-laying-here-with-a-beds-eye-view-of-a-body-that-no-longer-belongs-to-you|Dealey Plaza, make a left-hand turn.]]
+&nbsp;
+#### [[notes/b/billy_talent/afraid_of_heights/afraid_of_heights_reprise.md#now-im-waiting-on-the-corner-in-the-back-of-your-mind|I'm going down to the crossroads, gonna flag a ride,]]
+#### [[notes/b/billy_talent/afraid_of_heights/afraid_of_heights_reprise.md#now-im-waiting-on-the-corner-in-the-back-of-your-mind|the place where faith, hope, and charity died.]]
+#### [[notes/b/billy_talent/afraid_of_heights/afraid_of_heights_reprise.md#now-im-waiting-on-the-corner-in-the-back-of-your-mind|Shoot him while he runs, boy, shoot him while you can,]]
+#### [[notes/b/billy_talent/afraid_of_heights/afraid_of_heights_reprise.md#now-im-waiting-on-the-corner-in-the-back-of-your-mind|see if you can shoot the invisible man.]]
+#### [[notes/b/billy_talent/afraid_of_heights/afraid_of_heights_reprise.md#now-im-waiting-on-the-corner-in-the-back-of-your-mind|Goodbye, Charlie! Goodbye, Uncle Sam!]]
+#### [[notes/b/billy_talent/afraid_of_heights/afraid_of_heights_reprise.md#now-im-waiting-on-the-corner-in-the-back-of-your-mind|Frankly, Miss Scarlett, I don't give a damn.]]
+&nbsp;
+#### [[notes/d/deadmau5/4x412/one_trick_pony.md#pump-the-brakes-youre-a-redflag-red-light|What is the truth, where did it go?]]
+#### [[notes/d/deadmau5/4x412/one_trick_pony.md#pump-the-brakes-youre-a-redflag-red-light|Ask Oswald and Ruby, they oughta know.]]
+#### [[notes/d/deadmau5/4x412/one_trick_pony.md#pump-the-brakes-youre-a-redflag-red-light|"Shut your mouth," said a wise old owl.]]
+#### [[notes/d/deadmau5/4x412/one_trick_pony.md#pump-the-brakes-youre-a-redflag-red-light|Business is business, and it's a murder most foul]]
+&nbsp;
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|Tommy, can you hear me? I'm the Acid Queen.]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|I'm riding in a long, black Lincoln limousine,]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|ridin' in the back seat next to my wife,]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|headed straight on into the afterlife.]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|I'm leaning to the left, I got my head in her lap.]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|Hold on, I've been led into some kind of a trap]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|where we ask no quarter and no quarter do we give.]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|We're right down the street]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-but-im-mentally-prepared|from the street where you live.]]
+&nbsp;
+#### [[notes/d/deftones/white_pony/passenger.md#here-i-lay|They mutilated his body and they took out his brain.]]
+#### [[notes/d/deftones/white_pony/passenger.md#here-i-lay|What more could they do? They piled on the pain.]]
+#### [[notes/d/deftones/white_pony/passenger.md#here-i-lay|But his soul was not there where it was supposed to be at.]]
+#### [[notes/d/deftones/white_pony/passenger.md#here-i-lay|For the last fifty years, they've been searchin' for that.]]
+#### [[notes/d/deftones/white_pony/passenger.md#here-i-lay|Freedom, oh, freedom, freedom over me,]]
+#### [[notes/d/deftones/white_pony/passenger.md#here-i-lay|I hate to tell you, mister, but only dead men are free.]]
+#### [[notes/d/deftones/white_pony/passenger.md#here-i-lay|Send me some lovin', then tell me no lie.]]
+#### [[notes/d/deftones/white_pony/passenger.md#here-i-lay|Throw the gun in the gutter and walk on by.]]
+&nbsp;
+#### [[notes/m/moby/almost_home_remixes_2015/almost_home_sebastien_2015_radio_edit.md#so-and-the-stars-fell-from-the-sky|Wake up, little Susie, let's go for a drive,]]
+#### [[notes/m/moby/almost_home_remixes_2015/almost_home_sebastien_2015_radio_edit.md#so-and-the-stars-fell-from-the-sky|cross the Trinity River, let's keep hope alive.]]
+#### [[notes/m/moby/almost_home_remixes_2015/almost_home_sebastien_2015_radio_edit.md#so-and-the-stars-fell-from-the-sky|Turn the radio on, don't touch the dials,]]
+#### [[notes/m/moby/almost_home_remixes_2015/almost_home_sebastien_2015_radio_edit.md#so-and-the-stars-fell-from-the-sky|Parkland Hospital, only six more miles.]]
+#### [[notes/m/moby/almost_home_remixes_2015/almost_home_sebastien_2015_radio_edit.md#so-and-the-stars-fell-from-the-sky|You got me dizzy, Miss Lizzy, you filled me with lead.]]
+#### [[notes/m/moby/almost_home_remixes_2015/almost_home_sebastien_2015_radio_edit.md#so-and-the-stars-fell-from-the-sky|That magic bullet of yours has gone to my head.]]
+&nbsp;
+#### [[notes/e/emarosa/versus/cliff_notes.md#when-birthdays-are-suicide-days|I'm just a patsy like Patsy Cline,]]
+#### [[notes/e/emarosa/versus/cliff_notes.md#when-birthdays-are-suicide-days|never shot anyone from in front or behind.]]
+#### [[notes/e/emarosa/versus/cliff_notes.md#when-birthdays-are-suicide-days|I've blood in my eye, got blood in my ear,]]
+#### [[notes/e/emarosa/versus/cliff_notes.md#when-birthdays-are-suicide-days|I'm never gonna make it to the new frontier.]]
+&nbsp;
+#### [[notes/r/rise_against/appeal_to_reason/savior.md#thats-when-she-said-i-dont-hate-you-boy|Zapruder's film I seen night before,]]
+#### [[notes/r/rise_against/appeal_to_reason/savior.md#thats-when-she-said-i-dont-hate-you-boy|seen it thirty-three times, maybe more.]]
+#### [[notes/r/rise_against/appeal_to_reason/savior.md#thats-when-she-said-i-dont-hate-you-boy|It's vile and deceitful, it's cruel and it's mean,]]
+#### [[notes/r/rise_against/appeal_to_reason/savior.md#thats-when-she-said-i-dont-hate-you-boy|ugliest thing that you ever have seen.]]
+&nbsp;
+#### [[notes/h/hollywood_undead/american_tragedy/coming_back_down.md#im-ashes-to-ashes-im-dust-to-dust|They killed him once and they killed him twice,]]
+#### [[notes/h/hollywood_undead/american_tragedy/coming_back_down.md#im-ashes-to-ashes-im-dust-to-dust|killed him like a human sacrifice.]]
+#### [[notes/h/hollywood_undead/american_tragedy/coming_back_down.md#im-ashes-to-ashes-im-dust-to-dust|The day that they killed him, someone said to me,]]
+#### [[notes/h/hollywood_undead/american_tragedy/coming_back_down.md#im-ashes-to-ashes-im-dust-to-dust|"Son, the age of the Antichrist has just only begun."]]
+&nbsp;
+#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/jesus_forgive_me_i_am_a_thot.md#pray-pray-pray|Air Force One comin' in through the gate,]]
+#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/jesus_forgive_me_i_am_a_thot.md#pray-pray-pray|Johnson sworn in at 2:38.]]
+#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/jesus_forgive_me_i_am_a_thot.md#pray-pray-pray|Let me know when you decide to throw in the towel.]]
+#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/jesus_forgive_me_i_am_a_thot.md#pray-pray-pray|It is what it is, and it's murder most foul.]]
+&nbsp;
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|What's new, pussycat? What'd I say?]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|I said the soul of a nation been torn away]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|and it's beginning to go into a slow decay]]
+#### [[notes/l/linkin_park/meteora/lying_from_you.md#no-no-turning-back-now|and that it's thirty-six hours past Judgment Day.]]
+&nbsp;
+#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now|Wolfman Jack, he's speaking in tongues,]]
+#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now|he's going on and on at the top of his lungs.]]
+#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now|Play me a song, Mr. Wolfman Jack,]]
+#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now|play it for me in my long Cadillac.]]
+&nbsp;
+#### [[notes/a/angelfish/angelfish/the_sun_wont_shine.md#close-the-door|Play me that "Only the Good Die Young."]]
+#### [[notes/a/angelfish/angelfish/the_sun_wont_shine.md#close-the-door|Take me to the place Tom Dooley was hung.]]
+#### [[notes/a/angelfish/angelfish/the_sun_wont_shine.md#close-the-door|Play "St. James Infirmary" and the Court of King James.]]
+#### [[notes/a/angelfish/angelfish/the_sun_wont_shine.md#close-the-door|If you want to remember, you better write down the names.]]
+&nbsp;
+#### [[notes/c/caliban/i_am_nemesis/die_die_my_darling.md#dont-cry-to-me-a-baby|Play Etta James too, play "I'd Rather Go Blind,"]]
+#### [[notes/c/caliban/i_am_nemesis/die_die_my_darling.md#dont-cry-to-me-a-baby|play it for the man with the telepathic mind.]]
+#### [[notes/c/caliban/i_am_nemesis/die_die_my_darling.md#dont-cry-to-me-a-baby|Play John Lee Hooker, play "Scratch My Back."]]
+#### [[notes/c/caliban/i_am_nemesis/die_die_my_darling.md#dont-cry-to-me-a-baby|Play it for that strip club owner named Jack.]]
+&nbsp;
+#### [[notes/s/semisonic/strangely_fine/closing_time.md#closing-time|Guitar Slim going down slow,]]
+#### [[notes/s/semisonic/strangely_fine/closing_time.md#closing-time|play it for me and for Marilyn Monroe.]]
+#### [[notes/s/semisonic/strangely_fine/closing_time.md#closing-time|Play "Please Don't Let Me Be Misunderstood."]]
+#### [[notes/s/semisonic/strangely_fine/closing_time.md#closing-time|Play it for the First Lady, she ain't feeling any good.]]
+#### [[notes/s/semisonic/strangely_fine/closing_time.md#closing-time|Play Don Henley, play Glenn Frey,]]
+#### [[notes/s/semisonic/strangely_fine/closing_time.md#closing-time|take it to the limit and let it go by.]]
+#### [[notes/s/semisonic/strangely_fine/closing_time.md#closing-time|Play it for Carl Wilson, too,]]
+#### [[notes/s/semisonic/strangely_fine/closing_time.md#closing-time|looking far, far away down Gower Avenue.]]
+&nbsp;
+#### [[notes/p/paradise_walk/rogue/fallen_lovers.md#gone-are-the-days-we-used-to-run-into-the-night|Play tragedy, play "Twilight Time,"]]
+#### [[notes/p/paradise_walk/rogue/fallen_lovers.md#gone-are-the-days-we-used-to-run-into-the-night|take me back to Tulsa to the scene of the crime.]]
+#### [[notes/p/paradise_walk/rogue/fallen_lovers.md#gone-are-the-days-we-used-to-run-into-the-night|Play another one and "Another One Bites the Dust."]]
+#### [[notes/p/paradise_walk/rogue/fallen_lovers.md#gone-are-the-days-we-used-to-run-into-the-night|Play "The Old Rugged Cross" and "In God We Trust."]]
+&nbsp;
+#### [[notes/l/la_dispute/wildlife/a_departure.md#that-i-know-you-understand|Ride the pink horse down that long, lonesome road,]]
+#### [[notes/l/la_dispute/wildlife/a_departure.md#that-i-know-you-understand|stand there and wait for his head to explode.]]
+#### [[notes/l/la_dispute/wildlife/a_departure.md#that-i-know-you-understand|Play "Mystery Train" for Mr. Mystery,]]
+#### [[notes/l/la_dispute/wildlife/a_departure.md#that-i-know-you-understand|the man who fell down dead like a rootless tree.]]
+&nbsp;
+#### [[notes/l/la_dispute/wildlife/a_departure.md#that-i-know-you-understand|Play it for the reverend, play it for the pastor,]]
+#### [[notes/l/la_dispute/wildlife/a_departure.md#that-i-know-you-understand|play it for the dog that got no master.]]
+#### [[notes/l/la_dispute/wildlife/a_departure.md#that-i-know-you-understand|Play Oscar Peterson, play Stan Getz,]]
+#### [[notes/l/la_dispute/wildlife/a_departure.md#that-i-know-you-understand|play "Blue Sky," play Dickey Betts.]]
+&nbsp;
+#### [[notes/c/caliban/i_am_nemesis/davy_jones.md#i-didnt-see-that-coming|Play Art Pepper, Thelonious Monk,]]
+#### [[notes/c/caliban/i_am_nemesis/davy_jones.md#i-didnt-see-that-coming|Charlie Parker and all that junk.]]
+#### [[notes/c/caliban/i_am_nemesis/davy_jones.md#i-didnt-see-that-coming|All that junk and "All That Jazz,"]]
+#### [[notes/c/caliban/i_am_nemesis/davy_jones.md#i-didnt-see-that-coming|play something for the Birdman of Alcatraz.]]
+&nbsp;
+#### [[notes/t/the_used/the_used/buried_myself_alive.md#i-guess-its-okay-i-puked-the-day-away|Play Buster Keaton, play Harold Lloyd,]]
+#### [[notes/t/the_used/the_used/buried_myself_alive.md#i-guess-its-okay-i-puked-the-day-away|play Bugsy Siegel, play Pretty Boy Floyd.]]
+#### [[notes/t/the_used/the_used/buried_myself_alive.md#i-guess-its-okay-i-puked-the-day-away|Play the numbers, play the odds.]]
+#### [[notes/t/the_used/the_used/buried_myself_alive.md#i-guess-its-okay-i-puked-the-day-away|Play "Cry Me a River" for the Lord of the gods.]]
+&nbsp;
+#### [[notes/s/sonic_youth/daydream_nation/teen_age_riot.md#it-better-work-out-i-hope-it-works-out-my-way|Play Number 9, play Number 6,]]
+#### [[notes/s/sonic_youth/daydream_nation/teen_age_riot.md#it-better-work-out-i-hope-it-works-out-my-way|play it for Lindsey and Stevie Nicks.]]
+#### [[notes/s/sonic_youth/daydream_nation/teen_age_riot.md#it-better-work-out-i-hope-it-works-out-my-way|Play Nat King Cole, play "Nature Boy,"]]
+#### [[notes/s/sonic_youth/daydream_nation/teen_age_riot.md#it-better-work-out-i-hope-it-works-out-my-way|play "Down in the Boondocks" for Terry Malloy.]]
+&nbsp;
+#### [[notes/t/type_o_negative/bloody_kisses/blood__fire.md#yeah-i-always-thought-wed-be-together|Play "It Happened One Night" and "One Night of Sin,"]]
+#### [[notes/t/type_o_negative/bloody_kisses/blood__fire.md#yeah-i-always-thought-wed-be-together|there's twelve million souls that are listening in.]]
+#### [[notes/t/type_o_negative/bloody_kisses/blood__fire.md#yeah-i-always-thought-wed-be-together|Play "Merchant of Venice", play "Merchants of Death,"]]
+#### [[notes/t/type_o_negative/bloody_kisses/blood__fire.md#yeah-i-always-thought-wed-be-together|play "Stella by Starlight" for Lady Macbeth.]]
+&nbsp;
+#### [[notes/c/curve/cuckoo/turkey_crossing.md#with-everything-considered|Don't worry, Mr. President, help's on the way,]]
+#### [[notes/c/curve/cuckoo/turkey_crossing.md#with-everything-considered|your brothers are comin', there'll be hell to pay.]]
+#### [[notes/c/curve/cuckoo/turkey_crossing.md#with-everything-considered|Brothers? What brothers? What's this about hell?]]
+#### [[notes/c/curve/cuckoo/turkey_crossing.md#with-everything-considered|Tell them, "We're waitin', keep comin',"]]
+#### [[notes/c/curve/cuckoo/turkey_crossing.md#with-everything-considered|we'll get them as well.]]
+&nbsp;
+#### [[notes/c/curve/gift/hung_up.md#hey-you-know|Love Field is where his plane touched down,]]
+#### [[notes/c/curve/gift/hung_up.md#hey-you-know|but it never did get back up off the ground,]]
+#### [[notes/c/curve/gift/hung_up.md#hey-you-know|was a hard act to follow, second to none.]]
+#### [[notes/c/curve/gift/hung_up.md#hey-you-know|They killed him on the altar of the rising sun.]]
+&nbsp;
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/damaged_goods.md#but-boy-you-wouldnt-let-your-fear-recede-so-i-moved-on|Play "Misty" for me and "That Old Devil Moon,"]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/damaged_goods.md#but-boy-you-wouldnt-let-your-fear-recede-so-i-moved-on|play "Anything Goes" and "Memphis in June."]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/damaged_goods.md#but-boy-you-wouldnt-let-your-fear-recede-so-i-moved-on|Play "Lonely at the Top" and "Lonely Are the Brave,"]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/damaged_goods.md#but-boy-you-wouldnt-let-your-fear-recede-so-i-moved-on|play it for Houdini spinning around in his grave.]]
+&nbsp;
+#### [[notes/i/inxs/listen_like_thieves/kiss_the_dirt_falling_down_the_mountain.md#you-know-it-wouldnt-hurt|Play Jelly Roll Morton, play "Lucille,"]]
+#### [[notes/i/inxs/listen_like_thieves/kiss_the_dirt_falling_down_the_mountain.md#you-know-it-wouldnt-hurt|play "Deep in a Dream", and play "Driving Wheel."]]
+#### [[notes/i/inxs/listen_like_thieves/kiss_the_dirt_falling_down_the_mountain.md#you-know-it-wouldnt-hurt|Play "Moonlight Sonata" in F-sharp]]
+#### [[notes/i/inxs/listen_like_thieves/kiss_the_dirt_falling_down_the_mountain.md#you-know-it-wouldnt-hurt|and "A Key to the Highway" for the king on the harp.]]
+&nbsp;
+#### [[notes/t/three_days_grace/life_starts_now/someone_who_cares.md#i-swear-this-time-it-wont-turn-out-the-same|Play "Marching Through Georgia" and "Dumbarton's Drums,"]]
+#### [[notes/t/three_days_grace/life_starts_now/someone_who_cares.md#i-swear-this-time-it-wont-turn-out-the-same|play darkness and death will come when it comes.]]
+#### [[notes/t/three_days_grace/life_starts_now/someone_who_cares.md#i-swear-this-time-it-wont-turn-out-the-same|Play "Love Me or Leave Me" by the great Bud Powell,]]
+#### [[notes/t/three_days_grace/life_starts_now/someone_who_cares.md#i-swear-this-time-it-wont-turn-out-the-same|play "The Blood-Stained Banner", play "Murder Most Foul."]]

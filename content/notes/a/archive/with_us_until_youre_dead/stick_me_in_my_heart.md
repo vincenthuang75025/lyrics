@@ -1,0 +1,60 @@
+---
+title: "Stick Me In My Heart"
+tags:
+- Archive
+- With Us Until You’re Dead
+---
+&nbsp;
+#### [[notes/d/dead_by_april/incomparable/within_my_heart.md#within-my-heart|Stick it in my heart]]
+#### [[notes/d/dead_by_april/incomparable/within_my_heart.md#within-my-heart|Stick it in my heart]]
+#### [[notes/d/dead_by_april/incomparable/within_my_heart.md#within-my-heart|Stick it in my heart]]
+&nbsp;
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Sacrifice my heart how I want it]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Crave the pain you give 'Cause I need it]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Claw away my skin then I see it]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Losing all my mind 'til I find it]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|You are all that cuts and is biting]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|You are all the things that enlight me]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Take away you're here and I'm nothing]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Just and empty hole]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|I am nothing]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Take away my fear]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Please do something]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Everything that is]]
+#### [[notes/s/seahaven/winter_forever/its_over.md#dont-tell-me-dont-tell-me-this-is-for-good|Is love about you]]
+&nbsp;
+#### [[notes/d/dead_by_april/incomparable/within_my_heart.md#within-my-heart|Stick me in my heart]]
+#### [[notes/d/dead_by_april/incomparable/within_my_heart.md#within-my-heart|Stick me in my heart]]
+#### [[notes/d/dead_by_april/incomparable/within_my_heart.md#within-my-heart|Stick me in my heart]]
+&nbsp;
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Feeling you insane how I need it]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Feeling all your pain]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|How I hold it]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Crashing through your walls]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Like a hammer]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Smashing up the floors]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Of your thinking]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Pull me through the cracks when you're sinking]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Pull me how you like]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|God I'm trying]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Seeing all your life]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|When it's dying]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Dragging me,]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|It kills when you're fighting]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Everything that is]]
+#### [[notes/d/defeater/letters_home/bled_out.md#i-feel-the-distance-in-your-letters-sent|Is love about you]]
+&nbsp;
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Stick me in my heart so I feel it]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Take me with your tears so I feel it]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Sharing all your love]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Now I feel it]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Bring it back to life]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|I don't feel it]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Stick me in my heart]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|So I feel it]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Sharing all your love]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Now I feel it]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Hold me in your love]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|'Cause love,]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Hold me in your love 'cause love is everything]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#weve-seen-them-fat-and-bloated-those-who-once-could-hold-a-flame|Love is everything]]

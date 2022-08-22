@@ -1,0 +1,82 @@
+---
+title: "Venom"
+tags:
+- Little Simz
+- GREY Area
+---
+&nbsp;
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Life sucks and I never tried suicide]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Mind's fucked even more than I realize]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Time's up, keep it moving when she arrives]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|If you ever heard what I heard in my mind]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Never try, you would cry, that's a lie, you would die]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|I don't wanna ever come down from a high]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|I'm in the best seat, from time, been a next breed]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|If you comin', come at me directly]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Don't need no one to defend me]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Soul's in a place even I can't get to, don't fuck with the deadly]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Moon waves and open seas, quick coasting over seas]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Fuck those who don't believe]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|They will never wanna admit I'm the best here]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|From the mere fact that I've got ovaries]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|It's a woman's world, so to speak]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Pussy, you sour]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Never givin' credit where it's due 'cause you don't like pussy in power]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Venom]]
+#### [[notes/c/counterparts/the_difference_between_hell_and_home/compass.md#the-weight-came-and-went-and-took-my-will-to-live|Venom]]
+&nbsp;
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|My, my, if you've ever heard what I've heard in the night]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|What a fright, must've been a parasite in my past life]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|I don't wanna ever come down from a high]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|My soul ascended to the sky, it's just you and I]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|God but I'm feelin' too alive]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Tryna get me out of spite]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Someone's gotta pay, I ain't talkin' big amounts]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Some kind of physical pain]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Some kind of traumatic shit]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Niggas wanna see dead bodies]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Probably not, they ain't rollin']]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|With no automatic clips]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Moving scatty, all erratic and shit]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Niggas pussy lickin', batty and shit]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Oh, you mad? Then come at me, you prick]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|Make a move, better pattern it quick]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|I assume you'll be comin' for blood]]
+#### [[notes/i/in_flames/come_clarity/dead_end.md#im-not-afraid-to-bleed|That makes two of us, that makes two of us]]
+&nbsp;
+#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul|Venom]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul|Venom]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul|Venom]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul|(Venom, venom)]]
+&nbsp;
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Night time to daylight we roll trees]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Saved lives, invade minds and go deep]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Oh, he wouldn't have guessed I'm so chill]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Part of the day in the life you won't see]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Part of the day in the life you can't be here for]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|It's the day in the life of OG's]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Dealin' with inner demons that won't leave]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Not a word, you will listen when my soul speaks]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Down I go, so follow me, follow me, follow me]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Actually, don't follow me, nobody bother me]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|I'm a mess, honestly, fuck all of your policies]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|They wanna kick me down and demolish me]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Use me and fuckin' abolish me]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|I don't wanna hear no apologies]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Or am I in my own head?]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Can't tell anymore, psychotic to the death]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|When I dig deep, I can never find nothin' left]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|It's a mystery]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Rage, nothin' but rage]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Can't figure out if I'm goin' insane]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Ain't no doubt we'll be showing no mercy]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|So think twice if you wanna get blazed]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Nothin' ain't nice 'round here, no games]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|I don't wanna dark nobody in a flash]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|True, it's a stick-up, hands in the air]]
+#### [[notes/o/of_mice__men/restoring_force/feels_like_forever.md#rain-will-fall-wash-all-the-pain-it-shields-the-soul-you-turn-the-page-to-face-another-day|Put the money in the bag, all cash, all cash]]
+&nbsp;
+#### Venom
+#### Venom
+#### Venom
+#### (Venom, venom)

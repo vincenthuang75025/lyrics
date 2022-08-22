@@ -1,0 +1,67 @@
+---
+title: "All My Heroes Are Cornballs"
+tags:
+- JPEGMAFIA
+- All My Heroes Are Cornballs
+---
+&nbsp;
+#### [[notes/f/faith_no_more/the_real_thing/from_out_of_nowhere.md#tossed-into-my-mind-stirring-the-calm|One, two]]
+#### [[notes/f/faith_no_more/the_real_thing/from_out_of_nowhere.md#tossed-into-my-mind-stirring-the-calm|JPEG, because I like JPEGs (Say, say)]]
+#### [[notes/f/faith_no_more/the_real_thing/from_out_of_nowhere.md#tossed-into-my-mind-stirring-the-calm|Um, for the resolution of color]]
+#### [[notes/f/faith_no_more/the_real_thing/from_out_of_nowhere.md#tossed-into-my-mind-stirring-the-calm|You think you know me]]
+#### [[notes/f/faith_no_more/the_real_thing/from_out_of_nowhere.md#tossed-into-my-mind-stirring-the-calm|The only thing about JPEGs I like]]
+#### [[notes/f/faith_no_more/the_real_thing/from_out_of_nowhere.md#tossed-into-my-mind-stirring-the-calm|It's yours]]
+#### [[notes/f/faith_no_more/the_real_thing/from_out_of_nowhere.md#tossed-into-my-mind-stirring-the-calm|Alright]]
+&nbsp;
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|Aw, nigga, nigga, nigga, I'm stayin' (Yeah, huh)]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|Aw, nigga, nigga, I'm just playin' (Playin', playin', playin', yeah)]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|Walk in the crib with the Glock 19 and a dirty clip]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|Snuck up in Coachella with a bong, lil' buddy, I ain't Jaden Smith (No)]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|Herman, nigga, of course (Of course), I'm flagrant (Facts)]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|I can't keep no job, I can't commit]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|Hate goes into these bars, some niggas ain't built for it]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|I made rap my job, it's sacred]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|You don't wanna get them guns involved (Doo-doo-doo-doo)]]
+#### [[notes/e/eluveitie/everything_remains_as_it_never_was/thousandfold.md#cheat-you-had-to-create|'Cause your wifey gon' be callin' the law, boys (Boys), alright]]
+&nbsp;
+#### [[notes/p/pendulum/immersion/crush.md#i-was-wandering-under-black-skies-clutching-at-what-is-mine|Fuck]]
+#### [[notes/p/pendulum/immersion/crush.md#i-was-wandering-under-black-skies-clutching-at-what-is-mine|Motherfuckers, man]]
+#### [[notes/p/pendulum/immersion/crush.md#i-was-wandering-under-black-skies-clutching-at-what-is-mine|Fuck, fuck]]
+#### [[notes/p/pendulum/immersion/crush.md#i-was-wandering-under-black-skies-clutching-at-what-is-mine|These niggas out here, man]]
+#### [[notes/p/pendulum/immersion/crush.md#i-was-wandering-under-black-skies-clutching-at-what-is-mine|Gnarly, gnarly]]
+#### [[notes/p/pendulum/immersion/crush.md#i-was-wandering-under-black-skies-clutching-at-what-is-mine|Fuck, fuck]]
+#### [[notes/p/pendulum/immersion/crush.md#i-was-wandering-under-black-skies-clutching-at-what-is-mine|Fuck (Fuck)]]
+#### [[notes/p/pendulum/immersion/crush.md#i-was-wandering-under-black-skies-clutching-at-what-is-mine|Gnarly]]
+&nbsp;
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Uh, damn, guess who had a big year? (Big year)]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|No whips, no chains, just a few tears]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Pop filter, hopin' that you get the stock (Bah)]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|When I hit the stage, I hope that my enemies watchin']]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Damn, I wonder when they droppin'?]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Why these wiggas always showin' up when niggas be poppin'? Bruh]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Don't turn yourself into a target (Into a target)]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|'Cause we can take this shit from beef to somethin' exhaustin']]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Glock 43X with the sticky holster (Bah-bah-bah)]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Pistol whip 'em, I can't waste the bullet in a poser (Blat)]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Incels gettin' crossed 'cause I crossed over]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|How they go from Anne Hathaway to Ann Coulter?]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|All that shootin' in the air, that's for posin' (That's for posin')]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Fast break, we jammin' it, nigga, no floaters]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|Lames gettin' bolder, straps on the shoulder]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#darkness-comforts-me-in-this-moment|They gon' have to get the chap to console you]]
+&nbsp;
+#### [[notes/t/the_killing_tree/bury_me_at_makeout_creek/replace_my_heart.md#you-cant-stop-this-thought|You know, everybody wanna say I do this, I do that (Don't play me)]]
+#### [[notes/t/the_killing_tree/bury_me_at_makeout_creek/replace_my_heart.md#you-cant-stop-this-thought|Everyone wanna act like they hard and shitBut just stop, shit]]
+#### [[notes/t/the_killing_tree/bury_me_at_makeout_creek/replace_my_heart.md#you-cant-stop-this-thought|Damn, haha]]
+&nbsp;
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|Let me]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|Let me get, uh, uh]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|Let me get a double bacon, a double bacon, double]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|Nah, not a double bacon, uh, uh]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|A bacon, a bacon smokehouse meal with no cheese]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|Mhm]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|Yeah, with, with no cheese on that thang, and uh]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|Is that gonna be a large?]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|The meal is gon' be large, the meal is]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|What to drink?]]
+#### [[notes/a/alaska_highway/closure/skyline.md#the-lights-above-us|Uh, the meal, uh, is gon' come with a]]

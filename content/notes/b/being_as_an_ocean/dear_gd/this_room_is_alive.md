@@ -1,0 +1,40 @@
+---
+title: "This Room Is Alive"
+tags:
+- Being As An Ocean
+- Dear G-D...
+---
+&nbsp;
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|This room's alive]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Breathing]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|In this moment, each one of us is leaving]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|All of life's worries and troubles far behind]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Speaking in tongues]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Sweating blood]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Rapture]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Some people search their entire lives for such a cure]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Screaming silently inside]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Past horrors plaguing their minds]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|This is our release]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|This is our violent plea]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Hearts scarred and bandaged]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Souls weathered and damaged]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|This is our release]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Our violent plea]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|It's time to burn the past]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Take off our self-fabricated coping masks]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|We'll let each other see who we really are]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|With our broken limbs and battle scars]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Naked, all things stripped away]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|You'll see we've all gone through similar pains]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|And like children, we count and play our hiding games]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|But we won't come inside when Grace calls our name]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Slaves to our guilt and shame]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Pointing the finger at the one who was never really to blame]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Ourselves]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Reopen your wounds anew]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|And watch the broken come to stand by you]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|You don't have to feel alone]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|Cause I know this place could feel like home]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|There is no need to run and hide]]
+#### [[notes/p/parcels/myenemy/myenemy.md#and-what-i-never-touch|When your true family is standing by your side]]

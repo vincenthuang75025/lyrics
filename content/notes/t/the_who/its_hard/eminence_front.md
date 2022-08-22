@@ -1,0 +1,68 @@
+---
+title: "Eminence Front"
+tags:
+- The Who
+- It’s Hard
+---
+&nbsp;
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|The sun shines]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|And people forget]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|The spray flies as the speedboat glides]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|And people forget]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|Forget they're hiding]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|The girls smile]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|And people forget]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|The snow packs as the skier tracks]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|And people forget]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#frost-on-the-breath-of-life|Forget they're hiding]]
+&nbsp;
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|Behind an eminence front]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|Eminence front   It's a put on]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|It's an eminence front]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|It's an eminence front   It's a put on]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|An eminence front]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|Eminence front   It's a put on]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|Eminence front]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|It's an eminence front]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|It's an eminence front   It's a put on]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|It's a put on]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|It's a put on]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/remorse_is_for_the_dead.md#the-dirty-lord-of-the-manor-surveys-his-filthy-domain|It's a put on]]
+&nbsp;
+#### [[notes/a/alice_in_chains/facelift/man_in_the_box.md#wont-you-come-and-save-me|Come and join the party, dress to kill]]
+#### [[notes/a/alice_in_chains/facelift/man_in_the_box.md#wont-you-come-and-save-me|Won't you come and join the party]]
+#### [[notes/a/alice_in_chains/facelift/man_in_the_box.md#wont-you-come-and-save-me|Dress to kill]]
+#### [[notes/a/alice_in_chains/facelift/man_in_the_box.md#wont-you-come-and-save-me|Dress to kill]]
+&nbsp;
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|The drinks flow]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|People forget]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|That big wheel spins, the hair thins]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|People forget]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|Forget they're hiding]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|The news slows]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|People forget]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|The shares crash, hopes are dashed]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|People forget]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#spiraling-to-the-ground-below|Forget they're hiding]]
+&nbsp;
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|Behind an eminence front]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|An eminence front   it's a put on]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|It's just an eminence front]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|An eminence front   It's a put on]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|An eminence front]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|An eminence front   It's a put on]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|Eminence front]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|It's an eminence front   It's a put on]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|It's a put on]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|It's a put on]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/impossible_year.md#theres-no-sunshine|It's a put on]]
+&nbsp;
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Come and join the party]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Dress to]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Come and join the party]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Dress to]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Come and join the party]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Dress to]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Come and join the party]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Dress to kill]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/break_you.md#endless-mornings-cut-by-the-dawn-razor|Dress yourself to kill]]

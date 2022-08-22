@@ -1,0 +1,62 @@
+---
+title: "Even the Dead Have Their Tasks"
+tags:
+- Being As An Ocean
+- How We Both Wondrously Perish
+---
+&nbsp;
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|We pack up our gear]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|And we're gone again]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Driven by passion, outward]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Away from family and friends]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|But what they can't see]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Is that every day I'm drowning in a sea]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Of faces that I miss so desperately]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|With each flashing countenance]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|A torrent of emotion, joy, and memories]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|The people I've grown to love so deeply]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Throughout the years]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|I've chosen a big family]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|And the weight of their absence]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Has brought me more than once to tears]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|I wake from sleep violently]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Only to witness those lives and faces]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Disappear slowly behind me]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|(I'm drowning)]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Again I'm pulled back into deep waters]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Washed further away from my sisters and brothers]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|Am I truly living a dream]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#and-if-i-do-what-you-demand|When the only time I spend with you is in my sleep?]]
+&nbsp;
+#### [[notes/h/hundredth/let_go/carry_on.md#carry-on-i-will-overcome-the-world|How am I to stay the course, to remain bold]]
+#### [[notes/h/hundredth/let_go/carry_on.md#carry-on-i-will-overcome-the-world|When all those my heart longs for]]
+#### [[notes/h/hundredth/let_go/carry_on.md#carry-on-i-will-overcome-the-world|Remain firmly anchored at home]]
+#### [[notes/h/hundredth/let_go/carry_on.md#carry-on-i-will-overcome-the-world|Am I truly living a dream]]
+#### [[notes/h/hundredth/let_go/carry_on.md#carry-on-i-will-overcome-the-world|When the only time I spend with you is in my sleep?]]
+&nbsp;
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|With every "it's-been-awhile" embrace]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|I wish it could last an eternity]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|Silently praying for the courage to say]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|"Oh G-d, how I've missed you!]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|I've seen you in my sleep!]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|We were laughing, crying, joking]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|You know, the way it used to be]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|Back when we younger and all that much more free]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|I just hope you see that nothing's changed between you and me]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|No matter the time we've spent apart]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|I know it's not always easy to show it]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|But please believe that I carried you in my heart]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|That you were with me through every mile]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|I could have sworn I saw your phantom standing in the aisle!"]]
+&nbsp;
+#### [[notes/e/enter_shikari/common_dreads/juggernauts.md#and-i-know-that-weve-still-got-time|It seems you already know what I'm thinking]]
+#### [[notes/e/enter_shikari/common_dreads/juggernauts.md#and-i-know-that-weve-still-got-time|And that, even after all this time]]
+#### [[notes/e/enter_shikari/common_dreads/juggernauts.md#and-i-know-that-weve-still-got-time|Some things still do go without saying]]
+&nbsp;
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|We savored the taste of our sweet youth]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|And now, with calloused hands, gather the remaining fruit]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|To go any farther, we must endure further pains]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|Skinned, mashed, and finally strained]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|Fermenting in the time spent away]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|Only to return with a fine vintage]]
+#### [[notes/t/tool/undertow/bottom.md#theres-no-choice-but-to-confront-you-to-engage-you-to-erase-you|To cheers to the health of those who stayed]]

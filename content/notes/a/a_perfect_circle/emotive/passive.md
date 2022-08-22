@@ -1,0 +1,76 @@
+---
+title: "Passive"
+tags:
+- A Perfect Circle
+- eMOTIVe
+---
+&nbsp;
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#so-tired-so-tired-of-showing-love-so-deep|Dead as dead can be]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#so-tired-so-tired-of-showing-love-so-deep|The doctor tells me]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#so-tired-so-tired-of-showing-love-so-deep|But I just can't believe him]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#so-tired-so-tired-of-showing-love-so-deep|Ever the optimistic one]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#so-tired-so-tired-of-showing-love-so-deep|I'm sure of your ability to become]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#so-tired-so-tired-of-showing-love-so-deep|My perfect enemy]]
+&nbsp;
+#### [[notes/b/bring_me_the_horizon/sempiternal/and_the_snakes_start_to_sing.md#dont-say-im-better-off-dead|Wake up]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/and_the_snakes_start_to_sing.md#dont-say-im-better-off-dead|And face me]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/and_the_snakes_start_to_sing.md#dont-say-im-better-off-dead|Don't play dead]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/and_the_snakes_start_to_sing.md#dont-say-im-better-off-dead|'Cause maybe]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/and_the_snakes_start_to_sing.md#dont-say-im-better-off-dead|Someday]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/and_the_snakes_start_to_sing.md#dont-say-im-better-off-dead|I'll walk away and say]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/and_the_snakes_start_to_sing.md#dont-say-im-better-off-dead| You disappoint me]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/and_the_snakes_start_to_sing.md#dont-say-im-better-off-dead|Maybe you're better off this way]]
+&nbsp;
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|Leaning over you here]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|Cold and catatonic]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|I catch a brief reflection]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|What you could and might have been]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|It's your right and your ability]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|To become my perfect enemy]]
+&nbsp;
+#### [[notes/d/deez_nuts/bout_it/keep_on.md#again-and-again-and-again-i-get-tested|Wake up (why can't you)]]
+#### [[notes/d/deez_nuts/bout_it/keep_on.md#again-and-again-and-again-i-get-tested|And face me (come on now)]]
+#### [[notes/d/deez_nuts/bout_it/keep_on.md#again-and-again-and-again-i-get-tested|Don't play dead (don't play dead)]]
+#### [[notes/d/deez_nuts/bout_it/keep_on.md#again-and-again-and-again-i-get-tested|'Cause maybe (because maybe)]]
+#### [[notes/d/deez_nuts/bout_it/keep_on.md#again-and-again-and-again-i-get-tested|Someday (someday)]]
+#### [[notes/d/deez_nuts/bout_it/keep_on.md#again-and-again-and-again-i-get-tested|I'll walk away and say]]
+#### [[notes/d/deez_nuts/bout_it/keep_on.md#again-and-again-and-again-i-get-tested| You disappoint me]]
+#### [[notes/d/deez_nuts/bout_it/keep_on.md#again-and-again-and-again-i-get-tested|Maybe you're better off this way]]
+&nbsp;
+#### [[notes/t/three_days_grace/life_starts_now/home.md#im-better-off-alone|Maybe you're better off this way]]
+#### [[notes/t/three_days_grace/life_starts_now/home.md#im-better-off-alone|Maybe you're better off this way]]
+#### [[notes/t/three_days_grace/life_starts_now/home.md#im-better-off-alone|Maybe you're better off this way]]
+#### [[notes/t/three_days_grace/life_starts_now/home.md#im-better-off-alone|You're better off this]]
+#### [[notes/t/three_days_grace/life_starts_now/home.md#im-better-off-alone|You're better off this]]
+#### [[notes/t/three_days_grace/life_starts_now/home.md#im-better-off-alone|Maybe you're better off]]
+&nbsp;
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|Wake up (why can't you)]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|And face me (come on now)]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|Don't play dead (don't play dead)]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|'Cause maybe (because maybe)]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|Someday (someday)]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|I'll walk away and say]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know| You fucking disappoint me]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/dark_horse.md#-im-not-scared--its-all-that-i-know|Maybe you're better off this way]]
+&nbsp;
+#### [[notes/s/seether/karma__effect/world_falls_away.md#must-be-something-theyre-hiding|Go ahead and play dead (go)]]
+#### [[notes/s/seether/karma__effect/world_falls_away.md#must-be-something-theyre-hiding|I know that you can hear this (go)]]
+#### [[notes/s/seether/karma__effect/world_falls_away.md#must-be-something-theyre-hiding|Go ahead and play dead (go)]]
+#### [[notes/s/seether/karma__effect/world_falls_away.md#must-be-something-theyre-hiding|Why can't you turn and face me]]
+#### [[notes/s/seether/karma__effect/world_falls_away.md#must-be-something-theyre-hiding|Why can't you turn and face me]]
+#### [[notes/s/seether/karma__effect/world_falls_away.md#must-be-something-theyre-hiding|Why can't you turn and face me]]
+#### [[notes/s/seether/karma__effect/world_falls_away.md#must-be-something-theyre-hiding|Why can't you turn and face me]]
+#### [[notes/s/seether/karma__effect/world_falls_away.md#must-be-something-theyre-hiding|You fucking disappoint me]]
+&nbsp;
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
+#### [[notes/c/caliban/the_undying_darkness/song_about_killing.md#im-here-to-kill|Passive-aggressive bullshit]]
