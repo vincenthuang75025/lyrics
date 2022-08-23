@@ -43,7 +43,6 @@ function initPopover(baseURL, useContextualBacklinks, renderLatex) {
           const popoverElement = `<div class="popover">
     <h3>${linkDest.title}</h3>
     <p>${highlight(removeMarkdown(linkDest.content), li.dataset.ctx)}...</p>
-    <p class="meta">${new Date(linkDest.lastmodified).toLocaleDateString()}</p>
 </div>`
           el = htmlToElement(popoverElement)
         } else {
@@ -59,8 +58,7 @@ function initPopover(baseURL, useContextualBacklinks, renderLatex) {
             const popoverElement = `<div class="popover">
     <h3>${linkDest.title}</h3>
     <hr>
-    <div>${cleanedContent.split(" ", 20).join(" ")}...</div>
-    <p class="meta">${new Date(linkDest.lastmodified).toLocaleDateString()}</p>
+    <div>${cleanedContent.split(" ", 20).join(" ")} ...</div>
 </div>`
             el = htmlToElement(popoverElement)
           }
