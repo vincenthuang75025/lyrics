@@ -8,22 +8,22 @@ tags:
 #### [[notes/a/archive/with_us_until_youre_dead/violently.md#who-the-fuck-vyl-wnanory|You know who the fuck it is]] {#you-know-who-the-fuck-it-is-vyl-wnanory}
 &nbsp;
 #### [[notes/s/stone_sour/come_whatever_may/reborn.md#motherfucker-vyl-wnanory|Bout it]] {#bout-it-vyl-wnanory}
-#### [[notes/s/stone_sour/come_whatever_may/reborn.md#bout-it-vyl-wnanory|Bout it]]
-#### [[notes/s/stone_sour/come_whatever_may/reborn.md#bout-it-vyl-wnanory|Motherfucker yeah we bout it]]
+#### [[notes/s/stone_sour/come_whatever_may/reborn.md#motherfucker-vyl-wnanory|Bout it]]
+#### [[notes/s/stone_sour/come_whatever_may/reborn.md#motherfucker-vyl-wnanory|Motherfucker yeah we bout it]]
 &nbsp;
 #### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#and-my-minds-out-vyl-wnanory|Yo, you know who the fuck it is, so introductions ain't necessary]] {#yo-you-know-who-the-fuck-it-is-so-introductions-aint-necessary-vyl-wnanory}
-#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#yo-you-know-who-the-fuck-it-is-so-introductions-aint-necessary-vyl-wnanory|stick tight to our kind, middle fingers to our adversaries]]
-#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#stick-tight-to-our-kind-middle-fingers-to-our-adversaries-vyl-wnanory|We on the grind 24/7 365, party like there's no tomorrow living like we born to die]]
-#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#we-on-the-grind-247-365-party-like-theres-no-tomorrow-living-like-we-born-to-die-vyl-wnanory|but we got a whole lot left in us, and we can't stop won't stop while there's breath in us]]
-#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#but-we-got-a-whole-lot-left-in-us-and-we-cant-stop-wont-stop-while-theres-breath-in-us-vyl-wnanory|No choice in the matter yo the game needs us, simple the fact of]]
-#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#no-choice-in-the-matter-yo-the-game-needs-us-simple-the-fact-of-vyl-wnanory|the matter no one does it like does. Plus you know we do our thing cause you seen us put]]
-#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#the-matter-no-one-does-it-like-does-plus-you-know-we-do-our-thing-cause-you-seen-us-put-vyl-wnanory|it down in your country, in your city, your motherfuckin' town]]
-#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#it-down-in-your-country-in-your-city-your-motherfuckin-town-vyl-wnanory|we keeps it world wide like live wire to empire, keep it DTD from MLB to NYC]]
+#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#and-my-minds-out-vyl-wnanory|stick tight to our kind, middle fingers to our adversaries]]
+#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#and-my-minds-out-vyl-wnanory|We on the grind 24/7 365, party like there's no tomorrow living like we born to die]]
+#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#and-my-minds-out-vyl-wnanory|but we got a whole lot left in us, and we can't stop won't stop while there's breath in us]]
+#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#and-my-minds-out-vyl-wnanory|No choice in the matter yo the game needs us, simple the fact of]]
+#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#and-my-minds-out-vyl-wnanory|the matter no one does it like does. Plus you know we do our thing cause you seen us put]]
+#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#and-my-minds-out-vyl-wnanory|it down in your country, in your city, your motherfuckin' town]]
+#### [[notes/i/infected_mushroom/converting_vegetarians/converting_vegetarians.md#and-my-minds-out-vyl-wnanory|we keeps it world wide like live wire to empire, keep it DTD from MLB to NYC]]
 &nbsp;
 #### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/degausser.md#your-blue-blood-is-now-running-vyl-wnanory|Friends and fam till the end yeah we bout it]] {#friends-and-fam-till-the-end-yeah-we-bout-it-vyl-wnanory}
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/degausser.md#friends-and-fam-till-the-end-yeah-we-bout-it-vyl-wnanory|Stage dives and high fives we bout it]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/degausser.md#stage-dives-and-high-fives-we-bout-it-vyl-wnanory|rockin' shows, party and bullshit we bout it]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/degausser.md#rockin-shows-party-and-bullshit-we-bout-it-vyl-wnanory|bout it bout it motherfucker yeah we bout it]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/degausser.md#your-blue-blood-is-now-running-vyl-wnanory|Stage dives and high fives we bout it]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/degausser.md#your-blue-blood-is-now-running-vyl-wnanory|rockin' shows, party and bullshit we bout it]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/degausser.md#your-blue-blood-is-now-running-vyl-wnanory|bout it bout it motherfucker yeah we bout it]]
 &nbsp;
 #### Friends and fam till the end yeah we bout it
 #### Stage dives and high fives we bout it

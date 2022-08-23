@@ -22,25 +22,25 @@ tags:
 #### [[notes/a/archive/with_us_until_youre_dead/silent.md#it-feels-impossible-vyl-wnanory|The river's not flooded this time]] {#the-rivers-not-flooded-this-time-vyl-wnanory}
 &nbsp;
 #### [[notes/d/dead_by_april/dead_by_april/stronger.md#anwser-me-its-all-that-im-asking-vyl-wnanory|Oh, precious distance]] {#oh-precious-distance-vyl-wnanory}
-#### [[notes/d/dead_by_april/dead_by_april/stronger.md#oh-precious-distance-vyl-wnanory|Oh, precious pain]]
-#### [[notes/d/dead_by_april/dead_by_april/stronger.md#oh-precious-pain-vyl-wnanory|You've given me a name]]
-#### [[notes/d/dead_by_april/dead_by_april/stronger.md#youve-given-me-a-name-vyl-wnanory|And etched it in the stones of the river bank]]
+#### [[notes/d/dead_by_april/dead_by_april/stronger.md#anwser-me-its-all-that-im-asking-vyl-wnanory|Oh, precious pain]]
+#### [[notes/d/dead_by_april/dead_by_april/stronger.md#anwser-me-its-all-that-im-asking-vyl-wnanory|You've given me a name]]
+#### [[notes/d/dead_by_april/dead_by_april/stronger.md#anwser-me-its-all-that-im-asking-vyl-wnanory|And etched it in the stones of the river bank]]
 &nbsp;
 #### [[notes/w/wumpscut/embryodead/down_where_we_belong.md#our-thoughts-are-fading-in-a-time-that-melts-vyl-wnanory|Oh, precious distance]]
-#### [[notes/w/wumpscut/embryodead/down_where_we_belong.md#oh-precious-distance-vyl-wnanory|Oh, precious pain]]
-#### [[notes/w/wumpscut/embryodead/down_where_we_belong.md#oh-precious-pain-vyl-wnanory|You've given us a name]]
-#### [[notes/w/wumpscut/embryodead/down_where_we_belong.md#youve-given-us-a-name-vyl-wnanory|You've given us a name]]
+#### [[notes/w/wumpscut/embryodead/down_where_we_belong.md#our-thoughts-are-fading-in-a-time-that-melts-vyl-wnanory|Oh, precious pain]]
+#### [[notes/w/wumpscut/embryodead/down_where_we_belong.md#our-thoughts-are-fading-in-a-time-that-melts-vyl-wnanory|You've given us a name]]
+#### [[notes/w/wumpscut/embryodead/down_where_we_belong.md#our-thoughts-are-fading-in-a-time-that-melts-vyl-wnanory|You've given us a name]]
 &nbsp;
 #### [[notes/z/zero_7/simple_things/in_the_waiting_line.md#do-you-believe-vyl-wnanory|"Rise!" said the King to the River, "Never let up! No, bring us a flood and bring it hard!" "Freeze!" said the Wind to the Water, "Never give in! No, build us a bridge! And build it strong and angry. Let it stall the King's decrees. Oh, you must contemplate the current, Boy, and command that coward cease. The boy breathes for his love says, 'I wait.' His love says, 'I wait.' She's shouting out, "I will come back. Yes, I will come back! And I will come. I have lived my life so uncomfortably. Darling, come for me, come for me."]] {#rise-said-the-king-to-the-river-never-let-up-no-bring-us-a-flood-and-bring-it-hard-freeze-said-the-wind-to-the-water-never-give-in-no-build-us-a-bridge-and-build-it-strong-and-angry-let-it-stall-the-kings-decrees-oh-you-must-contemplate-the-current-boy-and-command-that-coward-cease-the-boy-breathes-for-his-love-says-i-wait-his-love-says-i-wait-shes-shouting-out-i-will-come-back-yes-i-will-come-back-and-i-will-come-i-have-lived-my-life-so-uncomfortably-darling-come-for-me-come-for-me-vyl-wnanory}
 &nbsp;
 #### [[notes/z/zero_7/simple_things/in_the_waiting_line.md#do-you-believe-vyl-wnanory|"Rise!" said the Boy to his Lover, "Darling, get up. I've brought you my love, and brought it far!"]] {#rise-said-the-boy-to-his-lover-darling-get-up-ive-brought-you-my-love-and-brought-it-far-vyl-wnanory}
-#### [[notes/z/zero_7/simple_things/in_the_waiting_line.md#rise-said-the-boy-to-his-lover-darling-get-up-ive-brought-you-my-love-and-brought-it-far-vyl-wnanory|"Leave!" said the Girl to her Lover, "I've given in. If love is a bridge, we built it wrong!"]]
+#### [[notes/z/zero_7/simple_things/in_the_waiting_line.md#do-you-believe-vyl-wnanory|"Leave!" said the Girl to her Lover, "I've given in. If love is a bridge, we built it wrong!"]]
 &nbsp;
 #### [[notes/e/emarosa/versus/a_hundred_crowns.md#say-youre-something-more-than-what-shows-vyl-wnanory|Curb your anger]] {#curb-your-anger-vyl-wnanory}
-#### [[notes/e/emarosa/versus/a_hundred_crowns.md#curb-your-anger-vyl-wnanory|Still your fists]]
-#### [[notes/e/emarosa/versus/a_hundred_crowns.md#still-your-fists-vyl-wnanory|She will never come back]]
-#### [[notes/e/emarosa/versus/a_hundred_crowns.md#she-will-never-come-back-vyl-wnanory|She'll never come back]]
-#### [[notes/e/emarosa/versus/a_hundred_crowns.md#shell-never-come-back-vyl-wnanory|She'll never come]]
-#### [[notes/e/emarosa/versus/a_hundred_crowns.md#shell-never-come-vyl-wnanory|Never come back]]
-#### [[notes/e/emarosa/versus/a_hundred_crowns.md#never-come-back-vyl-wnanory|She'll never come back]]
-#### [[notes/e/emarosa/versus/a_hundred_crowns.md#shell-never-come-back-vyl-wnanory|She'll never come]]
+#### [[notes/e/emarosa/versus/a_hundred_crowns.md#say-youre-something-more-than-what-shows-vyl-wnanory|Still your fists]]
+#### [[notes/e/emarosa/versus/a_hundred_crowns.md#say-youre-something-more-than-what-shows-vyl-wnanory|She will never come back]]
+#### [[notes/e/emarosa/versus/a_hundred_crowns.md#say-youre-something-more-than-what-shows-vyl-wnanory|She'll never come back]]
+#### [[notes/e/emarosa/versus/a_hundred_crowns.md#say-youre-something-more-than-what-shows-vyl-wnanory|She'll never come]]
+#### [[notes/e/emarosa/versus/a_hundred_crowns.md#say-youre-something-more-than-what-shows-vyl-wnanory|Never come back]]
+#### [[notes/e/emarosa/versus/a_hundred_crowns.md#say-youre-something-more-than-what-shows-vyl-wnanory|She'll never come back]]
+#### [[notes/e/emarosa/versus/a_hundred_crowns.md#say-youre-something-more-than-what-shows-vyl-wnanory|She'll never come]]

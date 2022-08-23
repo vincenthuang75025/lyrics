@@ -6,40 +6,40 @@ tags:
 ---
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-you-know-they-all-pretend-vyl-wnanory|Keep you in the dark]] {#keep-you-in-the-dark-vyl-wnanory}
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-vyl-wnanory|You know they all pretend]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#you-know-they-all-pretend-vyl-wnanory|Keep you in the dark]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-vyl-wnanory|And so it all began]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-you-know-they-all-pretend-vyl-wnanory|You know they all pretend]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-you-know-they-all-pretend-vyl-wnanory|Keep you in the dark]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-you-know-they-all-pretend-vyl-wnanory|And so it all began]]
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#send-in-your-skeletons-vyl-wnanory|Send in your skeletons]] {#send-in-your-skeletons-vyl-wnanory}
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#send-in-your-skeletons-vyl-wnanory|Sing as their bones come marching in again]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#sing-as-their-bones-come-marching-in-again-vyl-wnanory|They need you buried deep]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#they-need-you-buried-deep-vyl-wnanory|The secrets that you keep are at the ready]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#the-secrets-that-you-keep-are-at-the-ready-vyl-wnanory|Are you ready?]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#send-in-your-skeletons-vyl-wnanory|They need you buried deep]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#send-in-your-skeletons-vyl-wnanory|The secrets that you keep are at the ready]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#send-in-your-skeletons-vyl-wnanory|Are you ready?]]
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-finished-making-sense-vyl-wnanory|I'm finished making sense]] {#im-finished-making-sense-vyl-wnanory}
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-finished-making-sense-vyl-wnanory|Done pleading ignorance]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#done-pleading-ignorance-vyl-wnanory|That whole defense]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#that-whole-defense-vyl-wnanory|Spinning infinity, but]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#spinning-infinity-but-vyl-wnanory|The wheel is spinning me]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#the-wheel-is-spinning-me-vyl-wnanory|It's neverending, neverending]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#its-neverending-neverending-vyl-wnanory|Same old story]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-finished-making-sense-vyl-wnanory|That whole defense]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-finished-making-sense-vyl-wnanory|Spinning infinity, but]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-finished-making-sense-vyl-wnanory|The wheel is spinning me]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-finished-making-sense-vyl-wnanory|It's neverending, neverending]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-finished-making-sense-vyl-wnanory|Same old story]]
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I'm not like the others?]] {#what-if-i-say-im-not-like-the-others-vyl-wnanory}
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I'm not just another one of your plays?]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-just-another-one-of-your-plays-vyl-wnanory|You're the pretender]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#youre-the-pretender-vyl-wnanory|What if I say I will never surrender?]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|You're the pretender]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I will never surrender?]]
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I'm not like the others?]]
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I'm not just another one of your plays?]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-just-another-one-of-your-plays-vyl-wnanory|You're the pretender]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#youre-the-pretender-vyl-wnanory|What if I say that I'll never surrender?]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|You're the pretender]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say that I'll never surrender?]]
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#in-time-or-so-im-told-vyl-wnanory|In time, or so I'm told]] {#in-time-or-so-im-told-vyl-wnanory}
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#in-time-or-so-im-told-vyl-wnanory|I'm just another soul for sale, oh well]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-just-another-soul-for-sale-oh-well-vyl-wnanory|The page is out of print]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#the-page-is-out-of-print-vyl-wnanory|We are not permanent]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#we-are-not-permanent-vyl-wnanory|We're temporary, temporary]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#were-temporary-temporary-vyl-wnanory|Same old story]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#in-time-or-so-im-told-vyl-wnanory|The page is out of print]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#in-time-or-so-im-told-vyl-wnanory|We are not permanent]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#in-time-or-so-im-told-vyl-wnanory|We're temporary, temporary]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#in-time-or-so-im-told-vyl-wnanory|Same old story]]
 &nbsp;
 #### What if I say I'm not like the others?
 #### What if I say I'm not just another one of your plays?
@@ -48,21 +48,21 @@ tags:
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I'm not like the others?]]
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I'm not just another one of your plays?]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-just-another-one-of-your-plays-vyl-wnanory|You're the pretender]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#youre-the-pretender-vyl-wnanory|What if I say I will never surrender? Oh]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|You're the pretender]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I will never surrender? Oh]]
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-the-voice-inside-your-head-you-refuse-to-hear-vyl-wnanory|I'm the voice inside your head you refuse to hear]] {#im-the-voice-inside-your-head-you-refuse-to-hear-vyl-wnanory}
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-the-voice-inside-your-head-you-refuse-to-hear-vyl-wnanory|I'm the face that you have to face mirrored in your stare]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-the-face-that-you-have-to-face-mirrored-in-your-stare-vyl-wnanory|I'm what's left, I'm what's right, I'm the enemy]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-whats-left-im-whats-right-im-the-enemy-vyl-wnanory|I'm the hand that'll take you down, bring you to your knees]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-the-voice-inside-your-head-you-refuse-to-hear-vyl-wnanory|I'm what's left, I'm what's right, I'm the enemy]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#im-the-voice-inside-your-head-you-refuse-to-hear-vyl-wnanory|I'm the hand that'll take you down, bring you to your knees]]
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#so-who-are-you-vyl-wnanory|So who are you?]] {#so-who-are-you-vyl-wnanory}
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#so-who-are-you-vyl-wnanory|Yeah, who are you?]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#yeah-who-are-you-vyl-wnanory|Yeah, who are you?]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#yeah-who-are-you-vyl-wnanory|Yeah, who are you?]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#so-who-are-you-vyl-wnanory|Yeah, who are you?]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#so-who-are-you-vyl-wnanory|Yeah, who are you?]]
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-you-know-they-all-pretend-vyl-wnanory|Keep you in the dark]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-vyl-wnanory|You know they all pretend]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-you-know-they-all-pretend-vyl-wnanory|You know they all pretend]]
 &nbsp;
 #### What if I say I'm not like the others?
 #### What if I say I'm not just another one of your plays?
@@ -76,11 +76,11 @@ tags:
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I'm not like the others?]]
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|(Keep you in the dark)]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#keep-you-in-the-dark-vyl-wnanory|What if I say I'm not just another one of your plays?]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-just-another-one-of-your-plays-vyl-wnanory|(You know they all)]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#you-know-they-all-vyl-wnanory|You're the pretender]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#youre-the-pretender-vyl-wnanory|(Pretend)]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#pretend-vyl-wnanory|What if I say I will never surrender?]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I'm not just another one of your plays?]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|(You know they all)]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|You're the pretender]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|(Pretend)]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#what-if-i-say-im-not-like-the-others-vyl-wnanory|What if I say I will never surrender?]]
 &nbsp;
 #### What if I say I'm not like the others?
 #### (Keep you in the dark)
@@ -92,4 +92,4 @@ tags:
 &nbsp;
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#so-who-are-you-vyl-wnanory|So who are you?]]
 #### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#so-who-are-you-vyl-wnanory|Yeah, who are you?]]
-#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#yeah-who-are-you-vyl-wnanory|Yeah, who are you?]]
+#### [[notes/i/infected_mushroom/army_of_mushrooms/the_pretender.md#so-who-are-you-vyl-wnanory|Yeah, who are you?]]

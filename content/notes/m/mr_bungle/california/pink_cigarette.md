@@ -6,31 +6,31 @@ tags:
 ---
 &nbsp;
 #### [[notes/a/as_i_lay_dying/an_ocean_between_us/an_ocean_between_us.md#the-gate-to-my-heart-has-been-weld-shut-with-the-splendor-of-my-aspirations-closed-in-vyl-wnanory|(Hush me, touch me)]] {#hush-me-touch-me-vyl-wnanory}
-#### [[notes/a/as_i_lay_dying/an_ocean_between_us/an_ocean_between_us.md#hush-me-touch-me-vyl-wnanory|Perfume, the wind, and the leaves]]
-#### [[notes/a/as_i_lay_dying/an_ocean_between_us/an_ocean_between_us.md#perfume-the-wind-and-the-leaves-vyl-wnanory|(Hush me, touch me)]]
-#### [[notes/a/as_i_lay_dying/an_ocean_between_us/an_ocean_between_us.md#hush-me-touch-me-vyl-wnanory|The burns, the holes in the sheets]]
+#### [[notes/a/as_i_lay_dying/an_ocean_between_us/an_ocean_between_us.md#the-gate-to-my-heart-has-been-weld-shut-with-the-splendor-of-my-aspirations-closed-in-vyl-wnanory|Perfume, the wind, and the leaves]]
+#### [[notes/a/as_i_lay_dying/an_ocean_between_us/an_ocean_between_us.md#the-gate-to-my-heart-has-been-weld-shut-with-the-splendor-of-my-aspirations-closed-in-vyl-wnanory|(Hush me, touch me)]]
+#### [[notes/a/as_i_lay_dying/an_ocean_between_us/an_ocean_between_us.md#the-gate-to-my-heart-has-been-weld-shut-with-the-splendor-of-my-aspirations-closed-in-vyl-wnanory|The burns, the holes in the sheets]]
 &nbsp;
 #### [[notes/o/opeth/morningrise/advent.md#how-i-drape-my-face-with-my-bare-hands-vyl-wnanory|I'm hoping the smoke]] {#im-hoping-the-smoke-vyl-wnanory}
-#### [[notes/o/opeth/morningrise/advent.md#im-hoping-the-smoke-vyl-wnanory|Hides the shame I've got on my face]]
-#### [[notes/o/opeth/morningrise/advent.md#hides-the-shame-ive-got-on-my-face-vyl-wnanory|Cognac and broken glass]]
-#### [[notes/o/opeth/morningrise/advent.md#cognac-and-broken-glass-vyl-wnanory|All these years I've been your ashtray]]
+#### [[notes/o/opeth/morningrise/advent.md#how-i-drape-my-face-with-my-bare-hands-vyl-wnanory|Hides the shame I've got on my face]]
+#### [[notes/o/opeth/morningrise/advent.md#how-i-drape-my-face-with-my-bare-hands-vyl-wnanory|Cognac and broken glass]]
+#### [[notes/o/opeth/morningrise/advent.md#how-i-drape-my-face-with-my-bare-hands-vyl-wnanory|All these years I've been your ashtray]]
 &nbsp;
 #### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/even_angels_have_to_die.md#darkness-finds-me-in-my-fate-vyl-wnanory|(Not today)]] {#not-today-vyl-wnanory}
 &nbsp;
 #### [[notes/p/parkway_drive/atlas/dark_days.md#the-clock-is-ticking-cant-you-feel-our-days-are-numbered-vyl-wnanory|I found a pink cigarette]] {#i-found-a-pink-cigarette-vyl-wnanory}
-#### [[notes/p/parkway_drive/atlas/dark_days.md#i-found-a-pink-cigarette-vyl-wnanory|On the bed the day that you left]]
-#### [[notes/p/parkway_drive/atlas/dark_days.md#on-the-bed-the-day-that-you-left-vyl-wnanory|And how can I forget that your lips were there?]]
-#### [[notes/p/parkway_drive/atlas/dark_days.md#and-how-can-i-forget-that-your-lips-were-there-vyl-wnanory|Your kiss goes everywhere, touches everything but me]]
+#### [[notes/p/parkway_drive/atlas/dark_days.md#the-clock-is-ticking-cant-you-feel-our-days-are-numbered-vyl-wnanory|On the bed the day that you left]]
+#### [[notes/p/parkway_drive/atlas/dark_days.md#the-clock-is-ticking-cant-you-feel-our-days-are-numbered-vyl-wnanory|And how can I forget that your lips were there?]]
+#### [[notes/p/parkway_drive/atlas/dark_days.md#the-clock-is-ticking-cant-you-feel-our-days-are-numbered-vyl-wnanory|Your kiss goes everywhere, touches everything but me]]
 &nbsp;
 #### [[notes/o/opeth/morningrise/nectar.md#i-lament-this-heritage-vyl-wnanory|(Hush me, touch me)]]
-#### [[notes/o/opeth/morningrise/nectar.md#hush-me-touch-me-vyl-wnanory|Champagne, your hair in the breeze]]
-#### [[notes/o/opeth/morningrise/nectar.md#champagne-your-hair-in-the-breeze-vyl-wnanory|(Hush me, touch me)]]
-#### [[notes/o/opeth/morningrise/nectar.md#hush-me-touch-me-vyl-wnanory|Lipstick, a slap on my cheek]]
+#### [[notes/o/opeth/morningrise/nectar.md#i-lament-this-heritage-vyl-wnanory|Champagne, your hair in the breeze]]
+#### [[notes/o/opeth/morningrise/nectar.md#i-lament-this-heritage-vyl-wnanory|(Hush me, touch me)]]
+#### [[notes/o/opeth/morningrise/nectar.md#i-lament-this-heritage-vyl-wnanory|Lipstick, a slap on my cheek]]
 &nbsp;
 #### [[notes/h/heaven_shall_burn/invictus/given_in_death.md#enclosed-by-the-mists-of-oblivion-vyl-wnanory|Your eyes cried at last]] {#your-eyes-cried-at-last-vyl-wnanory}
-#### [[notes/h/heaven_shall_burn/invictus/given_in_death.md#your-eyes-cried-at-last-vyl-wnanory|Told me everything I was afraid to ask]]
-#### [[notes/h/heaven_shall_burn/invictus/given_in_death.md#told-me-everything-i-was-afraid-to-ask-vyl-wnanory|Now I'm dressed in white]]
-#### [[notes/h/heaven_shall_burn/invictus/given_in_death.md#now-im-dressed-in-white-vyl-wnanory|And you've burned me for the last time]]
+#### [[notes/h/heaven_shall_burn/invictus/given_in_death.md#enclosed-by-the-mists-of-oblivion-vyl-wnanory|Told me everything I was afraid to ask]]
+#### [[notes/h/heaven_shall_burn/invictus/given_in_death.md#enclosed-by-the-mists-of-oblivion-vyl-wnanory|Now I'm dressed in white]]
+#### [[notes/h/heaven_shall_burn/invictus/given_in_death.md#enclosed-by-the-mists-of-oblivion-vyl-wnanory|And you've burned me for the last time]]
 &nbsp;
 #### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/darkness_in_my_eyes.md#within-this-place-ive-sensed-no-evil-vyl-wnanory|(This ain't the last time)]] {#this-aint-the-last-time-vyl-wnanory}
 &nbsp;

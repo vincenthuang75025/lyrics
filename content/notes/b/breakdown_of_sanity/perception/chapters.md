@@ -8,26 +8,26 @@ tags:
 #### [[notes/b/breaking_benjamin/we_are_not_alone/simple_design.md#its-all-right-its-all-right-vyl-wnanory|Looking back on my footsteps on the cold ground, feeling like fleeing]] {#looking-back-on-my-footsteps-on-the-cold-ground-feeling-like-fleeing-vyl-wnanory}
 &nbsp;
 #### [[notes/t/the_used/the_used/greener_with_the_scenery.md#you-took-it-back-vyl-wnanory|They say the path I took should be my fate, but I wanna take my lazy steps on my own]] {#they-say-the-path-i-took-should-be-my-fate-but-i-wanna-take-my-lazy-steps-on-my-own-vyl-wnanory}
-#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#they-say-the-path-i-took-should-be-my-fate-but-i-wanna-take-my-lazy-steps-on-my-own-vyl-wnanory|Day by day, second by second, I set the course anew]]
+#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#you-took-it-back-vyl-wnanory|Day by day, second by second, I set the course anew]]
 &nbsp;
 #### [[notes/a/asking_alexandria/from_death_to_destiny/the_death_of_me.md#i-wont-let-you-be-the-death-of-me-vyl-wnanory|Walking through the frames of my life, looking for the moments I'll remember with a smile]] {#walking-through-the-frames-of-my-life-looking-for-the-moments-ill-remember-with-a-smile-vyl-wnanory}
-#### [[notes/a/asking_alexandria/from_death_to_destiny/the_death_of_me.md#walking-through-the-frames-of-my-life-looking-for-the-moments-ill-remember-with-a-smile-vyl-wnanory|Tripping over lies and hate, envy and vanity]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/the_death_of_me.md#tripping-over-lies-and-hate-envy-and-vanity-vyl-wnanory|I wish I could change the order of proceedings, no chance at all]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/the_death_of_me.md#i-wont-let-you-be-the-death-of-me-vyl-wnanory|Tripping over lies and hate, envy and vanity]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/the_death_of_me.md#i-wont-let-you-be-the-death-of-me-vyl-wnanory|I wish I could change the order of proceedings, no chance at all]]
 &nbsp;
 #### [[notes/f/fear_cult/visionary_complex/…in_time….md#pain-will-fade-in-time-vyl-wnanory|I build a time machine, I will reverse my mistakes, pain fade away!]] {#i-build-a-time-machine-i-will-reverse-my-mistakes-pain-fade-away-vyl-wnanory}
 &nbsp;
 #### [[notes/a/architects/ruin/always.md#if-only-you-were-here-to-hold-my-head-above-bloody-waters-vyl-wnanory|All these sources of noise are whispering and screaming, tempting and frightening]] {#all-these-sources-of-noise-are-whispering-and-screaming-tempting-and-frightening-vyl-wnanory}
-#### [[notes/a/architects/ruin/always.md#all-these-sources-of-noise-are-whispering-and-screaming-tempting-and-frightening-vyl-wnanory|in the middle of my head, beyond my heart]]
-#### [[notes/a/architects/ruin/always.md#in-the-middle-of-my-head-beyond-my-heart-vyl-wnanory|They try to change my mind into something bad, fighting against them for years]]
-#### [[notes/a/architects/ruin/always.md#they-try-to-change-my-mind-into-something-bad-fighting-against-them-for-years-vyl-wnanory|But in the end I still decide on my own, fearing the mistakes,]]
-#### [[notes/a/architects/ruin/always.md#but-in-the-end-i-still-decide-on-my-own-fearing-the-mistakes-vyl-wnanory|fearing the responsibility to myself and to my beloved, to my beloved]]
+#### [[notes/a/architects/ruin/always.md#if-only-you-were-here-to-hold-my-head-above-bloody-waters-vyl-wnanory|in the middle of my head, beyond my heart]]
+#### [[notes/a/architects/ruin/always.md#if-only-you-were-here-to-hold-my-head-above-bloody-waters-vyl-wnanory|They try to change my mind into something bad, fighting against them for years]]
+#### [[notes/a/architects/ruin/always.md#if-only-you-were-here-to-hold-my-head-above-bloody-waters-vyl-wnanory|But in the end I still decide on my own, fearing the mistakes,]]
+#### [[notes/a/architects/ruin/always.md#if-only-you-were-here-to-hold-my-head-above-bloody-waters-vyl-wnanory|fearing the responsibility to myself and to my beloved, to my beloved]]
 &nbsp;
 #### [[notes/m/marilyn_manson/the_golden_age_of_grotesque/tainted_love.md#now-i-know-ive-got-to-vyl-wnanory|These photos]] {#these-photos-vyl-wnanory}
-#### [[notes/m/marilyn_manson/the_golden_age_of_grotesque/tainted_love.md#these-photos-vyl-wnanory|Can't overlook the flashlights, they are surrounding me, observing all my movements]]
-#### [[notes/m/marilyn_manson/the_golden_age_of_grotesque/tainted_love.md#cant-overlook-the-flashlights-they-are-surrounding-me-observing-all-my-movements-vyl-wnanory|But finally it's me who's crying for my perfect sincerity, crying for my salvation, crying for the respect against for myself]]
-#### [[notes/m/marilyn_manson/the_golden_age_of_grotesque/tainted_love.md#but-finally-its-me-whos-crying-for-my-perfect-sincerity-crying-for-my-salvation-crying-for-the-respect-against-for-myself-vyl-wnanory|So where is the golden means of all decisions? Don't even know if there is a right way I could choose]]
+#### [[notes/m/marilyn_manson/the_golden_age_of_grotesque/tainted_love.md#now-i-know-ive-got-to-vyl-wnanory|Can't overlook the flashlights, they are surrounding me, observing all my movements]]
+#### [[notes/m/marilyn_manson/the_golden_age_of_grotesque/tainted_love.md#now-i-know-ive-got-to-vyl-wnanory|But finally it's me who's crying for my perfect sincerity, crying for my salvation, crying for the respect against for myself]]
+#### [[notes/m/marilyn_manson/the_golden_age_of_grotesque/tainted_love.md#now-i-know-ive-got-to-vyl-wnanory|So where is the golden means of all decisions? Don't even know if there is a right way I could choose]]
 &nbsp;
 #### [[notes/c/counterparts/the_current_will_carry_us/sinking.md#ive-simply-been-searching-for-the-right-place-to-rest-my-head-vyl-wnanory|I go down on my knees, I'm yelling at the ground, in the hope of finding some new answers]] {#i-go-down-on-my-knees-im-yelling-at-the-ground-in-the-hope-of-finding-some-new-answers-vyl-wnanory}
-#### [[notes/c/counterparts/the_current_will_carry_us/sinking.md#i-go-down-on-my-knees-im-yelling-at-the-ground-in-the-hope-of-finding-some-new-answers-vyl-wnanory|Thousands of questions, only one life for finding answers.]]
-#### [[notes/c/counterparts/the_current_will_carry_us/sinking.md#thousands-of-questions-only-one-life-for-finding-answers-vyl-wnanory|One question for thousands of lives - breathing slowly - what if]]
-#### [[notes/c/counterparts/the_current_will_carry_us/sinking.md#one-question-for-thousands-of-lives--breathing-slowly--what-if-vyl-wnanory|Despite this I never stopped believing in, waiting for the point I can see it clearly]]
+#### [[notes/c/counterparts/the_current_will_carry_us/sinking.md#ive-simply-been-searching-for-the-right-place-to-rest-my-head-vyl-wnanory|Thousands of questions, only one life for finding answers.]]
+#### [[notes/c/counterparts/the_current_will_carry_us/sinking.md#ive-simply-been-searching-for-the-right-place-to-rest-my-head-vyl-wnanory|One question for thousands of lives - breathing slowly - what if]]
+#### [[notes/c/counterparts/the_current_will_carry_us/sinking.md#ive-simply-been-searching-for-the-right-place-to-rest-my-head-vyl-wnanory|Despite this I never stopped believing in, waiting for the point I can see it clearly]]

@@ -29,6 +29,7 @@ const removeMarkdown = (
       output = output.replace(/\[(.*?)\][\[\(](.*?)[\]\)]/g, "$1 ($2)")
     }
     output = output
+      .replace(/( \{\#[^\}]+\})/gm, "")
       .replace(/<[^>]*>/g, "")
       .replace(/^[=\-]{2,}\s*$/g, "")
       .replace(/\[\^.+?\](\: .*?$)?/g, "")

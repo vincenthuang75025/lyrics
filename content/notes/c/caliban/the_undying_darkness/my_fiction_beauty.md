@@ -6,30 +6,30 @@ tags:
 ---
 &nbsp;
 #### [[notes/k/korn/the_paradigm_shift/what_we_do.md#sometimes-things-dont-go-away-vyl-wnanory|Waiting to breath out,]] {#waiting-to-breath-out-vyl-wnanory}
-#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#waiting-to-breath-out-vyl-wnanory|I saved my last breath to blow this darkness away,]]
-#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#i-saved-my-last-breath-to-blow-this-darkness-away-vyl-wnanory|Sweet shadows are calling me]]
-#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#sweet-shadows-are-calling-me-vyl-wnanory|My heart feels free to beat,]]
-#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#my-heart-feels-free-to-beat-vyl-wnanory|It's all about you,]]
-#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#its-all-about-you-vyl-wnanory|My fiction beauty,]]
-#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#my-fiction-beauty-vyl-wnanory|You are the one who could save me!]]
+#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#sometimes-things-dont-go-away-vyl-wnanory|I saved my last breath to blow this darkness away,]]
+#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#sometimes-things-dont-go-away-vyl-wnanory|Sweet shadows are calling me]]
+#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#sometimes-things-dont-go-away-vyl-wnanory|My heart feels free to beat,]]
+#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#sometimes-things-dont-go-away-vyl-wnanory|It's all about you,]]
+#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#sometimes-things-dont-go-away-vyl-wnanory|My fiction beauty,]]
+#### [[notes/k/korn/the_paradigm_shift/what_we_do.md#sometimes-things-dont-go-away-vyl-wnanory|You are the one who could save me!]]
 &nbsp;
 #### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#set-yourself-up-for-catastrophe-and-thats-the-only-way-that-is-has-to-be-vyl-wnanory|Save me, you were the avenger,]] {#save-me-you-were-the-avenger-vyl-wnanory}
-#### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#save-me-you-were-the-avenger-vyl-wnanory|A shining illusion of my lust,]]
-#### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#a-shining-illusion-of-my-lust-vyl-wnanory|A shining illusion of my trust!]]
+#### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#set-yourself-up-for-catastrophe-and-thats-the-only-way-that-is-has-to-be-vyl-wnanory|A shining illusion of my lust,]]
+#### [[notes/c/cypress_hill/stoned_raiders/catastrophe.md#set-yourself-up-for-catastrophe-and-thats-the-only-way-that-is-has-to-be-vyl-wnanory|A shining illusion of my trust!]]
 &nbsp;
 #### [[notes/p/parkway_drive/atlas/dream_run.md#dear-girl-there-is-a-world-that-stands-between-us-and-them-vyl-wnanory|Sweet shadows are calling me,]] {#sweet-shadows-are-calling-me-vyl-wnanory}
-#### [[notes/p/parkway_drive/atlas/dream_run.md#sweet-shadows-are-calling-me-vyl-wnanory|my heart is scared to beat,]]
-#### [[notes/p/parkway_drive/atlas/dream_run.md#my-heart-is-scared-to-beat-vyl-wnanory|It's all about my fiction beauty,]]
-#### [[notes/p/parkway_drive/atlas/dream_run.md#its-all-about-my-fiction-beauty-vyl-wnanory|You are the one who could kill me.]]
+#### [[notes/p/parkway_drive/atlas/dream_run.md#dear-girl-there-is-a-world-that-stands-between-us-and-them-vyl-wnanory|my heart is scared to beat,]]
+#### [[notes/p/parkway_drive/atlas/dream_run.md#dear-girl-there-is-a-world-that-stands-between-us-and-them-vyl-wnanory|It's all about my fiction beauty,]]
+#### [[notes/p/parkway_drive/atlas/dream_run.md#dear-girl-there-is-a-world-that-stands-between-us-and-them-vyl-wnanory|You are the one who could kill me.]]
 &nbsp;
 #### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#so-whatcha-waiting-for-anticipating-more-vyl-wnanory|Save me, you were the avenger,]]
-#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#save-me-you-were-the-avenger-vyl-wnanory|a shining illusion of my lust,]]
-#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#a-shining-illusion-of-my-lust-vyl-wnanory|a shining illusion of my trust!]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#so-whatcha-waiting-for-anticipating-more-vyl-wnanory|a shining illusion of my lust,]]
+#### [[notes/l/linkin_park/the_hunting_party/all_for_nothing.md#so-whatcha-waiting-for-anticipating-more-vyl-wnanory|a shining illusion of my trust!]]
 &nbsp;
 #### [[notes/s/slipknot/5__the_gray_chapter/aov.md#today-we-will-deceive-our-better-selves-vyl-wnanory|Sweet shadows are calling me,]]
-#### [[notes/s/slipknot/5__the_gray_chapter/aov.md#sweet-shadows-are-calling-me-vyl-wnanory|My heart feels to weak too beat,]]
-#### [[notes/s/slipknot/5__the_gray_chapter/aov.md#my-heart-feels-to-weak-too-beat-vyl-wnanory|It's all about you my fiction beauty,]]
-#### [[notes/s/slipknot/5__the_gray_chapter/aov.md#its-all-about-you-my-fiction-beauty-vyl-wnanory|You are the one who killed me.]]
+#### [[notes/s/slipknot/5__the_gray_chapter/aov.md#today-we-will-deceive-our-better-selves-vyl-wnanory|My heart feels to weak too beat,]]
+#### [[notes/s/slipknot/5__the_gray_chapter/aov.md#today-we-will-deceive-our-better-selves-vyl-wnanory|It's all about you my fiction beauty,]]
+#### [[notes/s/slipknot/5__the_gray_chapter/aov.md#today-we-will-deceive-our-better-selves-vyl-wnanory|You are the one who killed me.]]
 &nbsp;
 #### Save me, you were the avenger,
 #### A shining illusion of my lust,

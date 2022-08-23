@@ -6,20 +6,20 @@ tags:
 ---
 &nbsp;
 #### [[notes/o/of_mice__men/the_flood/let_live.md#let-you-go-youre-killing-me-vyl-wnanory|If only night could grow longer (longer, longer)]] {#if-only-night-could-grow-longer-longer-longer-vyl-wnanory}
-#### [[notes/o/of_mice__men/the_flood/let_live.md#if-only-night-could-grow-longer-longer-longer-vyl-wnanory|As I am getting no answer]]
-#### [[notes/o/of_mice__men/the_flood/let_live.md#as-i-am-getting-no-answer-vyl-wnanory|The time to wake just draw closer (closer, closer)]]
-#### [[notes/o/of_mice__men/the_flood/let_live.md#the-time-to-wake-just-draw-closer-closer-closer-vyl-wnanory|Lest all our nights would show closure]]
+#### [[notes/o/of_mice__men/the_flood/let_live.md#let-you-go-youre-killing-me-vyl-wnanory|As I am getting no answer]]
+#### [[notes/o/of_mice__men/the_flood/let_live.md#let-you-go-youre-killing-me-vyl-wnanory|The time to wake just draw closer (closer, closer)]]
+#### [[notes/o/of_mice__men/the_flood/let_live.md#let-you-go-youre-killing-me-vyl-wnanory|Lest all our nights would show closure]]
 &nbsp;
 #### [[notes/b/boy_harsher/country_girl_uncut/motion.md#remember-that-night-vyl-wnanory|Closer and closer to you]] {#closer-and-closer-to-you-vyl-wnanory}
-#### [[notes/b/boy_harsher/country_girl_uncut/motion.md#closer-and-closer-to-you-vyl-wnanory|Remember the night in the stars]]
+#### [[notes/b/boy_harsher/country_girl_uncut/motion.md#remember-that-night-vyl-wnanory|Remember the night in the stars]]
 &nbsp;
 #### [[notes/b/breaking_benjamin/phobia/you.md#promise-me-youll-try-to-leave-it-all-behind-vyl-wnanory|Through the night it's never ending]] {#through-the-night-its-never-ending-vyl-wnanory}
-#### [[notes/b/breaking_benjamin/phobia/you.md#through-the-night-its-never-ending-vyl-wnanory|Though the world is asleep in hollow]]
-#### [[notes/b/breaking_benjamin/phobia/you.md#though-the-world-is-asleep-in-hollow-vyl-wnanory|Memories lie in your wake]]
+#### [[notes/b/breaking_benjamin/phobia/you.md#promise-me-youll-try-to-leave-it-all-behind-vyl-wnanory|Though the world is asleep in hollow]]
+#### [[notes/b/breaking_benjamin/phobia/you.md#promise-me-youll-try-to-leave-it-all-behind-vyl-wnanory|Memories lie in your wake]]
 &nbsp;
 #### [[notes/h/hollywood_undead/american_tragedy/hear_me_now.md#whered-you-go-vyl-wnanory|Careless motions in the moment]] {#careless-motions-in-the-moment-vyl-wnanory}
-#### [[notes/h/hollywood_undead/american_tragedy/hear_me_now.md#careless-motions-in-the-moment-vyl-wnanory|Play it off to the sound we all know]]
-#### [[notes/h/hollywood_undead/american_tragedy/hear_me_now.md#play-it-off-to-the-sound-we-all-know-vyl-wnanory|Blazing the night as we go]]
+#### [[notes/h/hollywood_undead/american_tragedy/hear_me_now.md#whered-you-go-vyl-wnanory|Play it off to the sound we all know]]
+#### [[notes/h/hollywood_undead/american_tragedy/hear_me_now.md#whered-you-go-vyl-wnanory|Blazing the night as we go]]
 &nbsp;
 #### Closer and closer to you
 #### Remember the night in the stars

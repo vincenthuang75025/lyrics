@@ -6,9 +6,9 @@ tags:
 ---
 &nbsp;
 #### [[notes/g/green_day/dookie/when_i_come_around.md#i-heard-it-all-before-vyl-wnanory|This is dangerous]] {#this-is-dangerous-vyl-wnanory}
-#### [[notes/g/green_day/dookie/when_i_come_around.md#this-is-dangerous-vyl-wnanory|Open up your head, feel the shell-shock]]
-#### [[notes/g/green_day/dookie/when_i_come_around.md#open-up-your-head-feel-the-shellshock-vyl-wnanory|This is dangerous]]
-#### [[notes/g/green_day/dookie/when_i_come_around.md#this-is-dangerous-vyl-wnanory|I walk through mindfields so watch your head rock]]
+#### [[notes/g/green_day/dookie/when_i_come_around.md#i-heard-it-all-before-vyl-wnanory|Open up your head, feel the shell-shock]]
+#### [[notes/g/green_day/dookie/when_i_come_around.md#i-heard-it-all-before-vyl-wnanory|This is dangerous]]
+#### [[notes/g/green_day/dookie/when_i_come_around.md#i-heard-it-all-before-vyl-wnanory|I walk through mindfields so watch your head rock]]
 &nbsp;
 #### This is dangerous
 #### Open up your head, feel the shell-shock

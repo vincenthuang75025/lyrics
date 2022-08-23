@@ -6,11 +6,11 @@ tags:
 ---
 &nbsp;
 #### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#and-you-only-believe-what-you-can-see-vyl-wnanory|I believe in what they say]] {#i-believe-in-what-they-say-vyl-wnanory}
-#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#i-believe-in-what-they-say-vyl-wnanory|Never wanting]]
-#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#never-wanting-vyl-wnanory|Never needing]]
-#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#never-needing-vyl-wnanory|Never seeing]]
-#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#never-seeing-vyl-wnanory|Only praying]]
-#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#only-praying-vyl-wnanory|To the one]]
+#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#and-you-only-believe-what-you-can-see-vyl-wnanory|Never wanting]]
+#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#and-you-only-believe-what-you-can-see-vyl-wnanory|Never needing]]
+#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#and-you-only-believe-what-you-can-see-vyl-wnanory|Never seeing]]
+#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#and-you-only-believe-what-you-can-see-vyl-wnanory|Only praying]]
+#### [[notes/d/dead_when_i_found_her/rag_doll_blues/mirrors.md#and-you-only-believe-what-you-can-see-vyl-wnanory|To the one]]
 &nbsp;
 #### I believe in what they say
 #### Never wanting

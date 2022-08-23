@@ -10,13 +10,13 @@ tags:
 #### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]] {#invaders-must-die-vyl-wnanory}
 &nbsp;
 #### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]]
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#invaders-must-die-vyl-wnanory|Invaders must die]]
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#invaders-must-die-vyl-wnanory|Invaders must die]]
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#invaders-must-die-vyl-wnanory|Invaders must die]]
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#invaders-must-die-vyl-wnanory|Invaders must die]]
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#invaders-must-die-vyl-wnanory|Invaders must die]]
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#invaders-must-die-vyl-wnanory|Invaders must die]]
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#invaders-must-die-vyl-wnanory|Invaders must die]]
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]]
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]]
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]]
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]]
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]]
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]]
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-refuse-to-die-vyl-wnanory|Invaders must die]]
 &nbsp;
 #### We are The Prodigy
 &nbsp;

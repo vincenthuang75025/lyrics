@@ -12,4 +12,4 @@ tags:
 #### It won't go away
 &nbsp;
 #### [[notes/b/bad_religion/the_new_america/i_love_my_computer.md#go-away-vyl-wnanory|It won't go away]]
-#### [[notes/b/bad_religion/the_new_america/i_love_my_computer.md#it-wont-go-away-vyl-wnanory|It's an Omen]]
+#### [[notes/b/bad_religion/the_new_america/i_love_my_computer.md#go-away-vyl-wnanory|It's an Omen]]

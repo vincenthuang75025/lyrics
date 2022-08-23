@@ -6,28 +6,28 @@ tags:
 ---
 &nbsp;
 #### [[notes/c/curve/doppelgänger/already_yours.md#in-fact-i-never-wanted-anything-more-vyl-wnanory|We are all comatose. We are overfed and under undernourished, yearning for something more.]] {#we-are-all-comatose-we-are-overfed-and-under-undernourished-yearning-for-something-more-vyl-wnanory}
-#### [[notes/c/curve/doppelgänger/already_yours.md#we-are-all-comatose-we-are-overfed-and-under-undernourished-yearning-for-something-more-vyl-wnanory|Never starving yet never quite satisfied. Carnal but without useful flesh or mind. Yeah]]
+#### [[notes/c/curve/doppelgänger/already_yours.md#in-fact-i-never-wanted-anything-more-vyl-wnanory|Never starving yet never quite satisfied. Carnal but without useful flesh or mind. Yeah]]
 &nbsp;
 #### [[notes/s/sister_machine_gun/metropolis/torque.md#i-never-saw-anything-happen-that-fast-vyl-wnanory|I am a walking contradiction that's found consistency]] {#i-am-a-walking-contradiction-thats-found-consistency-vyl-wnanory}
-#### [[notes/s/sister_machine_gun/metropolis/torque.md#i-am-a-walking-contradiction-thats-found-consistency-vyl-wnanory|Consuming everything, all without producing sustenance.]]
+#### [[notes/s/sister_machine_gun/metropolis/torque.md#i-never-saw-anything-happen-that-fast-vyl-wnanory|Consuming everything, all without producing sustenance.]]
 &nbsp;
 #### [[notes/s/sister_machine_gun/metropolis/torque.md#i-never-saw-anything-happen-that-fast-vyl-wnanory|In the parallels we struggle  struggle to upkeep, there is a better way for us to be set free.]] {#in-the-parallels-we-struggle--struggle-to-upkeep-there-is-a-better-way-for-us-to-be-set-free-vyl-wnanory}
-#### [[notes/s/sister_machine_gun/metropolis/torque.md#in-the-parallels-we-struggle--struggle-to-upkeep-there-is-a-better-way-for-us-to-be-set-free-vyl-wnanory|From all it is we crave, there must be more to life than to simply stay alive  to simply stay alive.]]
+#### [[notes/s/sister_machine_gun/metropolis/torque.md#i-never-saw-anything-happen-that-fast-vyl-wnanory|From all it is we crave, there must be more to life than to simply stay alive  to simply stay alive.]]
 &nbsp;
 #### [[notes/s/sister_machine_gun/metropolis/torque.md#i-never-saw-anything-happen-that-fast-vyl-wnanory|We are not the same as I hope to show. There is a better way if we just let go.]] {#we-are-not-the-same-as-i-hope-to-show-there-is-a-better-way-if-we-just-let-go-vyl-wnanory}
-#### [[notes/s/sister_machine_gun/metropolis/torque.md#we-are-not-the-same-as-i-hope-to-show-there-is-a-better-way-if-we-just-let-go-vyl-wnanory|We are not  we are not the same. We are not  we are not the same. Let go]]
+#### [[notes/s/sister_machine_gun/metropolis/torque.md#i-never-saw-anything-happen-that-fast-vyl-wnanory|We are not  we are not the same. We are not  we are not the same. Let go]]
 &nbsp;
 #### [[notes/s/sister_machine_gun/metropolis/torque.md#i-never-saw-anything-happen-that-fast-vyl-wnanory|In the tension between devouring want or simple need]] {#in-the-tension-between-devouring-want-or-simple-need-vyl-wnanory}
-#### [[notes/s/sister_machine_gun/metropolis/torque.md#in-the-tension-between-devouring-want-or-simple-need-vyl-wnanory|It's clear the only lines between the ones we preserve.]]
+#### [[notes/s/sister_machine_gun/metropolis/torque.md#i-never-saw-anything-happen-that-fast-vyl-wnanory|It's clear the only lines between the ones we preserve.]]
 &nbsp;
 #### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-i-always-find-yeah-i-always-find-yeah-i-always-find-somethin-wrong-vyl-wnanory|We are not the same as I hope to show. There is a better way if we just let go.]]
-#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#we-are-not-the-same-as-i-hope-to-show-there-is-a-better-way-if-we-just-let-go-vyl-wnanory|We are not  we are not the same. We are not  we are not the same.]]
-#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#we-are-not--we-are-not-the-same-we-are-not--we-are-not-the-same-vyl-wnanory|Let go  We are not the same.]]
+#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-i-always-find-yeah-i-always-find-yeah-i-always-find-somethin-wrong-vyl-wnanory|We are not  we are not the same. We are not  we are not the same.]]
+#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-i-always-find-yeah-i-always-find-yeah-i-always-find-somethin-wrong-vyl-wnanory|Let go  We are not the same.]]
 &nbsp;
 #### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-i-always-find-yeah-i-always-find-somethin-wrong-vyl-wnanory|And in the parallels we struggle to upkeep,]] {#and-in-the-parallels-we-struggle-to-upkeep-vyl-wnanory}
-#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-in-the-parallels-we-struggle-to-upkeep-vyl-wnanory|There's a better way for us to be  for us to be set free.]]
-#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#theres-a-better-way-for-us-to-be--for-us-to-be-set-free-vyl-wnanory|And in the parallels (parallels) we struggle to upkeep (struggle to upkeep),]]
-#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-in-the-parallels-parallels-we-struggle-to-upkeep-struggle-to-upkeep-vyl-wnanory|There's a better way for us to be  for us to be set free.]]
+#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-i-always-find-yeah-i-always-find-somethin-wrong-vyl-wnanory|There's a better way for us to be  for us to be set free.]]
+#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-i-always-find-yeah-i-always-find-somethin-wrong-vyl-wnanory|And in the parallels (parallels) we struggle to upkeep (struggle to upkeep),]]
+#### [[notes/k/kanye_west/my_beautiful_dark_twisted_fantasy/runaway.md#and-i-always-find-yeah-i-always-find-somethin-wrong-vyl-wnanory|There's a better way for us to be  for us to be set free.]]
 &nbsp;
 #### We are not the same as I hope to show. There is a better way if we just let go.
 #### We are not  we are not the same. We are not  we are not the same.

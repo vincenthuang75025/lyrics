@@ -6,20 +6,20 @@ tags:
 ---
 &nbsp;
 #### [[notes/s/shakespears_sister/sacred_heart/heaven_is_in_your_arms.md#if-you-never-come-back-into-my-life-vyl-wnanory|You find yourself in the middle of a storm]] {#you-find-yourself-in-the-middle-of-a-storm-vyl-wnanory}
-#### [[notes/s/shakespears_sister/sacred_heart/heaven_is_in_your_arms.md#you-find-yourself-in-the-middle-of-a-storm-vyl-wnanory|You thought you were hard]]
-#### [[notes/s/shakespears_sister/sacred_heart/heaven_is_in_your_arms.md#you-thought-you-were-hard-vyl-wnanory|But you've barely been formed]]
+#### [[notes/s/shakespears_sister/sacred_heart/heaven_is_in_your_arms.md#if-you-never-come-back-into-my-life-vyl-wnanory|You thought you were hard]]
+#### [[notes/s/shakespears_sister/sacred_heart/heaven_is_in_your_arms.md#if-you-never-come-back-into-my-life-vyl-wnanory|But you've barely been formed]]
 &nbsp;
 #### [[notes/z/zeromancer/clone_your_lover/god_bless_the_models.md#out-of-a-fucked-up-head-vyl-wnanory|See who you are]] {#see-who-you-are-vyl-wnanory}
-#### [[notes/z/zeromancer/clone_your_lover/god_bless_the_models.md#see-who-you-are-vyl-wnanory|As your future is faced]]
-#### [[notes/z/zeromancer/clone_your_lover/god_bless_the_models.md#as-your-future-is-faced-vyl-wnanory|It's not that far]]
-#### [[notes/z/zeromancer/clone_your_lover/god_bless_the_models.md#its-not-that-far-vyl-wnanory|No step is retraced]]
+#### [[notes/z/zeromancer/clone_your_lover/god_bless_the_models.md#out-of-a-fucked-up-head-vyl-wnanory|As your future is faced]]
+#### [[notes/z/zeromancer/clone_your_lover/god_bless_the_models.md#out-of-a-fucked-up-head-vyl-wnanory|It's not that far]]
+#### [[notes/z/zeromancer/clone_your_lover/god_bless_the_models.md#out-of-a-fucked-up-head-vyl-wnanory|No step is retraced]]
 &nbsp;
 #### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#oh-show-me-your-love-your-love-vyl-wnanory|Today you're safe]] {#today-youre-safe-vyl-wnanory}
-#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#today-youre-safe-vyl-wnanory|Tomorrow who knows]]
-#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#tomorrow-who-knows-vyl-wnanory|Guarantees are fool's gold]]
-#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#guarantees-are-fools-gold-vyl-wnanory|34 turns to 43]]
-#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#34-turns-to-43-vyl-wnanory|See my mistakes]]
-#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#see-my-mistakes-vyl-wnanory|Don't become me]]
+#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#oh-show-me-your-love-your-love-vyl-wnanory|Tomorrow who knows]]
+#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#oh-show-me-your-love-your-love-vyl-wnanory|Guarantees are fool's gold]]
+#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#oh-show-me-your-love-your-love-vyl-wnanory|34 turns to 43]]
+#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#oh-show-me-your-love-your-love-vyl-wnanory|See my mistakes]]
+#### [[notes/p/panic_at_the_disco/too_weird_to_live_too_rare_to_die/collar_full.md#oh-show-me-your-love-your-love-vyl-wnanory|Don't become me]]
 &nbsp;
 #### You find yourself in the middle of a storm
 #### You thought you were hard

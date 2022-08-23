@@ -6,27 +6,27 @@ tags:
 ---
 &nbsp;
 #### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|(Only me)]] {#only-me-vyl-wnanory}
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#only-me-vyl-wnanory|Don't know the light from darkness]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#dont-know-the-light-from-darkness-vyl-wnanory|(Only me)]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#only-me-vyl-wnanory|Don't have the right to get it or forget it]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#dont-have-the-right-to-get-it-or-forget-it-vyl-wnanory|(Only me)]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#only-me-vyl-wnanory|To clarify the conflict]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#to-clarify-the-conflict-vyl-wnanory|(Only you)]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#only-you-vyl-wnanory|Will never ever upset it or regret it]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|Don't know the light from darkness]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|(Only me)]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|Don't have the right to get it or forget it]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|(Only me)]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|To clarify the conflict]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|(Only you)]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|Will never ever upset it or regret it]]
 &nbsp;
 #### [[notes/t/the_fair_sex/labyrinth/run_and_hide.md#im-not-dead-yet-vyl-wnanory|(I'm not anyone for you]] {#im-not-anyone-for-you-vyl-wnanory}
-#### [[notes/t/the_fair_sex/labyrinth/run_and_hide.md#im-not-anyone-for-you-vyl-wnanory|Not anyone for me]]
-#### [[notes/t/the_fair_sex/labyrinth/run_and_hide.md#not-anyone-for-me-vyl-wnanory|Not anyone for you)]]
+#### [[notes/t/the_fair_sex/labyrinth/run_and_hide.md#im-not-dead-yet-vyl-wnanory|Not anyone for me]]
+#### [[notes/t/the_fair_sex/labyrinth/run_and_hide.md#im-not-dead-yet-vyl-wnanory|Not anyone for you)]]
 &nbsp;
 #### [[notes/t/thirty_seconds_to_mars/this_is_war/closer_to_the_edge.md#no-no-no-no-i-will-never-forget-vyl-wnanory|To clarify the conflict]] {#to-clarify-the-conflict-vyl-wnanory}
-#### [[notes/t/thirty_seconds_to_mars/this_is_war/closer_to_the_edge.md#to-clarify-the-conflict-vyl-wnanory|Will never ever upset it]]
-#### [[notes/t/thirty_seconds_to_mars/this_is_war/closer_to_the_edge.md#will-never-ever-upset-it-vyl-wnanory|Will never ever regret it]]
-#### [[notes/t/thirty_seconds_to_mars/this_is_war/closer_to_the_edge.md#will-never-ever-regret-it-vyl-wnanory|Or upset it]]
+#### [[notes/t/thirty_seconds_to_mars/this_is_war/closer_to_the_edge.md#no-no-no-no-i-will-never-forget-vyl-wnanory|Will never ever upset it]]
+#### [[notes/t/thirty_seconds_to_mars/this_is_war/closer_to_the_edge.md#no-no-no-no-i-will-never-forget-vyl-wnanory|Will never ever regret it]]
+#### [[notes/t/thirty_seconds_to_mars/this_is_war/closer_to_the_edge.md#no-no-no-no-i-will-never-forget-vyl-wnanory|Or upset it]]
 &nbsp;
 #### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#the-light-has-come-vyl-wnanory|Don't know the light from darkness]] {#dont-know-the-light-from-darkness-vyl-wnanory}
-#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#dont-know-the-light-from-darkness-vyl-wnanory|Don't have the right to get it]]
-#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#dont-have-the-right-to-get-it-vyl-wnanory|Don't have the right to forget it]]
-#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#dont-have-the-right-to-forget-it-vyl-wnanory|Or forget it]]
+#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#the-light-has-come-vyl-wnanory|Don't have the right to get it]]
+#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#the-light-has-come-vyl-wnanory|Don't have the right to forget it]]
+#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#the-light-has-come-vyl-wnanory|Or forget it]]
 &nbsp;
 #### (I'm not anyone for you
 #### Not anyone for me

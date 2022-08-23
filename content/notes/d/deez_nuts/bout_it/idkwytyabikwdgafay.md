@@ -6,4 +6,4 @@ tags:
 ---
 &nbsp;
 #### [[notes/b/boy_harsher/lesser_man_extended_version/love.md#i-think-i-know-i-think-vyl-wnanory|I don't know who you think you are]] {#i-dont-know-who-you-think-you-are-vyl-wnanory}
-#### [[notes/b/boy_harsher/lesser_man_extended_version/love.md#i-dont-know-who-you-think-you-are-vyl-wnanory|But I know we don't give a fuck about you]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/love.md#i-think-i-know-i-think-vyl-wnanory|But I know we don't give a fuck about you]]

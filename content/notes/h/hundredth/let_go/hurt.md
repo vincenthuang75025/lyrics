@@ -6,13 +6,13 @@ tags:
 ---
 &nbsp;
 #### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-hurt-myself-today-to-see-if-i-still-feel-vyl-wnanory|I hurt myself today to see if I still feel. I focus on the pain, the only thing that's real.]] {#i-hurt-myself-today-to-see-if-i-still-feel-i-focus-on-the-pain-the-only-thing-thats-real-vyl-wnanory}
-#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-hurt-myself-today-to-see-if-i-still-feel-i-focus-on-the-pain-the-only-thing-thats-real-vyl-wnanory|The needle tears a hole, the old familiar sting. Try to kill it all away, but I remember everything.]]
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-hurt-myself-today-to-see-if-i-still-feel-vyl-wnanory|The needle tears a hole, the old familiar sting. Try to kill it all away, but I remember everything.]]
 &nbsp;
 #### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#what-have-i-become-my-sweetest-friend-vyl-wnanory|What have I become my sweetest friend? Everyone I know goes away in the end.]] {#what-have-i-become-my-sweetest-friend-everyone-i-know-goes-away-in-the-end-vyl-wnanory}
-#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#what-have-i-become-my-sweetest-friend-everyone-i-know-goes-away-in-the-end-vyl-wnanory|And you could have it all. My empire of dirt. I will let you down. I will make you hurt.]]
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#what-have-i-become-my-sweetest-friend-vyl-wnanory|And you could have it all. My empire of dirt. I will let you down. I will make you hurt.]]
 &nbsp;
 #### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-wear-this-crown-of-thorns-upon-my-liars-chair-vyl-wnanory|I wear this crown of thorns upon my liar's chair. Full of broken thoughts that I cannot repair.]] {#i-wear-this-crown-of-thorns-upon-my-liars-chair-full-of-broken-thoughts-that-i-cannot-repair-vyl-wnanory}
-#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-wear-this-crown-of-thorns-upon-my-liars-chair-full-of-broken-thoughts-that-i-cannot-repair-vyl-wnanory|Beneath the stains of time the feelings disappear. You are someone else. I am still right here.]]
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-wear-this-crown-of-thorns-upon-my-liars-chair-vyl-wnanory|Beneath the stains of time the feelings disappear. You are someone else. I am still right here.]]
 &nbsp;
 #### What have I become my sweetest friend? Everyone I know goes away in the end.
 #### And you could have it all. My empire of dirt. I will let you down. I will make you hurt.

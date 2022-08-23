@@ -6,20 +6,20 @@ tags:
 ---
 &nbsp;
 #### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/post_verified_lifestyle.md#lets-get-it-vyl-wnanory|Deep in the shadows I'm fighting a battle]] {#deep-in-the-shadows-im-fighting-a-battle-vyl-wnanory}
-#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/post_verified_lifestyle.md#deep-in-the-shadows-im-fighting-a-battle-vyl-wnanory|The creature wants me screaming, screaming]]
-#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/post_verified_lifestyle.md#the-creature-wants-me-screaming-screaming-vyl-wnanory|I think I'm losing, tired of choosing, I'm slipping down]]
-#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/post_verified_lifestyle.md#i-think-im-losing-tired-of-choosing-im-slipping-down-vyl-wnanory|I can't stop screaming, screaming]]
+#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/post_verified_lifestyle.md#lets-get-it-vyl-wnanory|The creature wants me screaming, screaming]]
+#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/post_verified_lifestyle.md#lets-get-it-vyl-wnanory|I think I'm losing, tired of choosing, I'm slipping down]]
+#### [[notes/j/jpegmafia/all_my_heroes_are_cornballs/post_verified_lifestyle.md#lets-get-it-vyl-wnanory|I can't stop screaming, screaming]]
 &nbsp;
 #### [[notes/n/neffex/fight_back__the_collection/fight_back.md#youre-never-gonna-make-it-youre-not-good-enough-vyl-wnanory|I'm living a lie, there's a creature hiding inside of me]] {#im-living-a-lie-theres-a-creature-hiding-inside-of-me-vyl-wnanory}
-#### [[notes/n/neffex/fight_back__the_collection/fight_back.md#im-living-a-lie-theres-a-creature-hiding-inside-of-me-vyl-wnanory|Black as the night with a cold dead heart and a lust for sin]]
-#### [[notes/n/neffex/fight_back__the_collection/fight_back.md#black-as-the-night-with-a-cold-dead-heart-and-a-lust-for-sin-vyl-wnanory|So I shut it out, I bottle up, I hide it from the world]]
-#### [[notes/n/neffex/fight_back__the_collection/fight_back.md#so-i-shut-it-out-i-bottle-up-i-hide-it-from-the-world-vyl-wnanory|If I let it out I don't know what I'll do]]
-#### [[notes/n/neffex/fight_back__the_collection/fight_back.md#if-i-let-it-out-i-dont-know-what-ill-do-vyl-wnanory|There's a creature inside of you too]]
+#### [[notes/n/neffex/fight_back__the_collection/fight_back.md#youre-never-gonna-make-it-youre-not-good-enough-vyl-wnanory|Black as the night with a cold dead heart and a lust for sin]]
+#### [[notes/n/neffex/fight_back__the_collection/fight_back.md#youre-never-gonna-make-it-youre-not-good-enough-vyl-wnanory|So I shut it out, I bottle up, I hide it from the world]]
+#### [[notes/n/neffex/fight_back__the_collection/fight_back.md#youre-never-gonna-make-it-youre-not-good-enough-vyl-wnanory|If I let it out I don't know what I'll do]]
+#### [[notes/n/neffex/fight_back__the_collection/fight_back.md#youre-never-gonna-make-it-youre-not-good-enough-vyl-wnanory|There's a creature inside of you too]]
 &nbsp;
 #### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-vyl-wnanory|I can't just turn to the menace I've clung to]] {#i-cant-just-turn-to-the-menace-ive-clung-to-vyl-wnanory}
-#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#i-cant-just-turn-to-the-menace-ive-clung-to-vyl-wnanory|The creature wants me screaming, screaming]]
-#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#the-creature-wants-me-screaming-screaming-vyl-wnanory|I can't determine, I'm sure that it's hell bent on breaking out and]]
-#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#i-cant-determine-im-sure-that-its-hell-bent-on-breaking-out-and-vyl-wnanory|Hearing you screaming, screaming]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-vyl-wnanory|The creature wants me screaming, screaming]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-vyl-wnanory|I can't determine, I'm sure that it's hell bent on breaking out and]]
+#### [[notes/s/sage_francis/human_the_death_dance/hell_of_a_year.md#its-been-a-hell-of-a-year-vyl-wnanory|Hearing you screaming, screaming]]
 &nbsp;
 #### I'm living a lie, there's a creature hiding inside of me
 #### Black as the night with a cold dead heart and a lust for sin

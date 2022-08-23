@@ -9,6 +9,8 @@ function findHeaderWithoutPunctuation(header, content) {
   let loweredContent = content.toLowerCase()
   let pos = -1
   let search = true
+  console.log(content)
+  console.log(header)
   while (search) {
     pos = loweredContent.indexOf("<h4>", pos+1)
     if (pos == -1) {
@@ -20,7 +22,9 @@ function findHeaderWithoutPunctuation(header, content) {
       } else {
         let candidate = loweredContent.substring(pos + 4, endPos).replace(/[.,\/#!$'%\^&\*;:{}=\-_`~()]/g,"")
         if (candidate == header) {
-          search = false
+          if (pos >= 7 && loweredContent.substring(pos - 7, pos) == "&nbsp;\n") {
+            search = false
+          }
         }
       }
     }
@@ -50,7 +54,7 @@ function initPopover(baseURL, useContextualBacklinks, renderLatex) {
             let splitLink = li.href.split("#")
             let cleanedContent = removeMarkdown(linkDest.content)
             if (splitLink.length > 1) {
-              let headingName = splitLink[1].replace(/\-/g, " ")
+              let headingName = splitLink[1].replace("-vyl-wnanory", "").replace(/\-/g, " ")
               let headingIndex = findHeaderWithoutPunctuation(headingName, cleanedContent)
               cleanedContent = cleanedContent.substring(headingIndex, cleanedContent.length)
             }

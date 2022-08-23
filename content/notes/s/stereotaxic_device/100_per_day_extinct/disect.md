@@ -6,17 +6,17 @@ tags:
 ---
 &nbsp;
 #### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-wear-this-crown-of-thorns-upon-my-liars-chair-vyl-wnanory|Fashion]] {#fashion-vyl-wnanory}
-#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#fashion-vyl-wnanory|The protracted death]]
-#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#the-protracted-death-vyl-wnanory|The electrocution]]
-#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#the-electrocution-vyl-wnanory|Furbearing death]]
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-wear-this-crown-of-thorns-upon-my-liars-chair-vyl-wnanory|The protracted death]]
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-wear-this-crown-of-thorns-upon-my-liars-chair-vyl-wnanory|The electrocution]]
+#### [[notes/j/johnny_cash/the_legend_of_johnny_cash/hurt.md#i-wear-this-crown-of-thorns-upon-my-liars-chair-vyl-wnanory|Furbearing death]]
 &nbsp;
 #### [[notes/m/metallica/master_of_puppets/master_of_puppets.md#end-of-passion-play-crumbling-away-vyl-wnanory|Disect, disect]] {#disect-disect-vyl-wnanory}
-#### [[notes/m/metallica/master_of_puppets/master_of_puppets.md#disect-disect-vyl-wnanory|Disect, disect]]
+#### [[notes/m/metallica/master_of_puppets/master_of_puppets.md#end-of-passion-play-crumbling-away-vyl-wnanory|Disect, disect]]
 &nbsp;
 #### [[notes/h/health/vol_4_꞉꞉_slaves_of_fear/decimation.md#god-of-the-past-vyl-wnanory|The methods of murder]] {#the-methods-of-murder-vyl-wnanory}
-#### [[notes/h/health/vol_4_꞉꞉_slaves_of_fear/decimation.md#the-methods-of-murder-vyl-wnanory|The leghold invention]]
-#### [[notes/h/health/vol_4_꞉꞉_slaves_of_fear/decimation.md#the-leghold-invention-vyl-wnanory|Murder for money]]
-#### [[notes/h/health/vol_4_꞉꞉_slaves_of_fear/decimation.md#murder-for-money-vyl-wnanory|All in the name of fashion]]
+#### [[notes/h/health/vol_4_꞉꞉_slaves_of_fear/decimation.md#god-of-the-past-vyl-wnanory|The leghold invention]]
+#### [[notes/h/health/vol_4_꞉꞉_slaves_of_fear/decimation.md#god-of-the-past-vyl-wnanory|Murder for money]]
+#### [[notes/h/health/vol_4_꞉꞉_slaves_of_fear/decimation.md#god-of-the-past-vyl-wnanory|All in the name of fashion]]
 &nbsp;
 #### Disect, disect
 #### Disect, disect

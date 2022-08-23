@@ -6,24 +6,24 @@ tags:
 ---
 &nbsp;
 #### [[notes/r/rush/counterparts/cold_fire.md#ill-be-around-vyl-wnanory|You can hang on to me if you don't know]] {#you-can-hang-on-to-me-if-you-dont-know-vyl-wnanory}
-#### [[notes/r/rush/counterparts/cold_fire.md#you-can-hang-on-to-me-if-you-dont-know-vyl-wnanory|I'll take you down the line]]
+#### [[notes/r/rush/counterparts/cold_fire.md#ill-be-around-vyl-wnanory|I'll take you down the line]]
 &nbsp;
 #### [[notes/z/zeromancer/eurotrash/doctor_online.md#its-the-beginning-of-the-end-vyl-wnanory|Don't you move too fast but don't go too slow]] {#dont-you-move-too-fast-but-dont-go-too-slow-vyl-wnanory}
-#### [[notes/z/zeromancer/eurotrash/doctor_online.md#dont-you-move-too-fast-but-dont-go-too-slow-vyl-wnanory|I want your love tonight]]
+#### [[notes/z/zeromancer/eurotrash/doctor_online.md#its-the-beginning-of-the-end-vyl-wnanory|I want your love tonight]]
 &nbsp;
 #### [[notes/p/panic_at_the_disco/death_of_a_bachelor/emperors_new_clothes.md#and-if-you-dont-know-now-you-know-vyl-wnanory|You can hang on to me if you don't know]]
-#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/emperors_new_clothes.md#you-can-hang-on-to-me-if-you-dont-know-vyl-wnanory|And we'll go down the line]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/emperors_new_clothes.md#and-if-you-dont-know-now-you-know-vyl-wnanory|And we'll go down the line]]
 &nbsp;
 #### [[notes/t/type_o_negative/life_is_killing_me/anesthesia.md#i-dont-need-love-vyl-wnanory|Don't you move too fast but don't go too slow]]
-#### [[notes/t/type_o_negative/life_is_killing_me/anesthesia.md#dont-you-move-too-fast-but-dont-go-too-slow-vyl-wnanory|I need your love tonight]]
+#### [[notes/t/type_o_negative/life_is_killing_me/anesthesia.md#i-dont-need-love-vyl-wnanory|I need your love tonight]]
 &nbsp;
 #### [[notes/b/breakdown_of_sanity/the_last_sunset/my_heart_in_your_hands.md#im-afraid-to-fall-again-vyl-wnanory|I'll catch you when you fall and fall again]] {#ill-catch-you-when-you-fall-and-fall-again-vyl-wnanory}
 &nbsp;
 #### [[notes/b/breakdown_of_sanity/the_last_sunset/my_heart_in_your_hands.md#im-afraid-to-fall-again-vyl-wnanory|You catch me when I fall]] {#you-catch-me-when-i-fall-vyl-wnanory}
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/my_heart_in_your_hands.md#you-catch-me-when-i-fall-vyl-wnanory|I fall again]]
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/my_heart_in_your_hands.md#im-afraid-to-fall-again-vyl-wnanory|I fall again]]
 &nbsp;
 #### [[notes/b/breakdown_of_sanity/the_last_sunset/my_heart_in_your_hands.md#im-afraid-to-fall-again-vyl-wnanory|I'll catch when you're falling]] {#ill-catch-when-youre-falling-vyl-wnanory}
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/my_heart_in_your_hands.md#ill-catch-when-youre-falling-vyl-wnanory|Fall again]]
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/my_heart_in_your_hands.md#im-afraid-to-fall-again-vyl-wnanory|Fall again]]
 &nbsp;
 #### You can hang on to me if you don't know
 #### I'll take you down the line
@@ -38,13 +38,13 @@ tags:
 #### I need your love tonight
 &nbsp;
 #### [[notes/l/linkin_park/one_more_light/heavy.md#you-say-that-im-paranoid-vyl-wnanory|He goes/I go]] {#he-goesi-go-vyl-wnanory}
-#### [[notes/l/linkin_park/one_more_light/heavy.md#he-goesi-go-vyl-wnanory|He knows/I know]]
-#### [[notes/l/linkin_park/one_more_light/heavy.md#he-knowsi-know-vyl-wnanory|He goes/I go]]
-#### [[notes/l/linkin_park/one_more_light/heavy.md#he-goesi-go-vyl-wnanory|He knows/I know]]
-#### [[notes/l/linkin_park/one_more_light/heavy.md#he-knowsi-know-vyl-wnanory|He goes/I go]]
-#### [[notes/l/linkin_park/one_more_light/heavy.md#he-goesi-go-vyl-wnanory|He knows/I know]]
-#### [[notes/l/linkin_park/one_more_light/heavy.md#he-knowsi-know-vyl-wnanory|He goes/I go]]
-#### [[notes/l/linkin_park/one_more_light/heavy.md#he-goesi-go-vyl-wnanory|He knows, it's only a matter of time]]
+#### [[notes/l/linkin_park/one_more_light/heavy.md#you-say-that-im-paranoid-vyl-wnanory|He knows/I know]]
+#### [[notes/l/linkin_park/one_more_light/heavy.md#you-say-that-im-paranoid-vyl-wnanory|He goes/I go]]
+#### [[notes/l/linkin_park/one_more_light/heavy.md#you-say-that-im-paranoid-vyl-wnanory|He knows/I know]]
+#### [[notes/l/linkin_park/one_more_light/heavy.md#you-say-that-im-paranoid-vyl-wnanory|He goes/I go]]
+#### [[notes/l/linkin_park/one_more_light/heavy.md#you-say-that-im-paranoid-vyl-wnanory|He knows/I know]]
+#### [[notes/l/linkin_park/one_more_light/heavy.md#you-say-that-im-paranoid-vyl-wnanory|He goes/I go]]
+#### [[notes/l/linkin_park/one_more_light/heavy.md#you-say-that-im-paranoid-vyl-wnanory|He knows, it's only a matter of time]]
 &nbsp;
 #### [[notes/t/the_clash/london_calling/clampdown.md#what-are-we-going-to-do-now-vyl-wnanory|Do you know what I need now?]] {#do-you-know-what-i-need-now-vyl-wnanory}
 &nbsp;
