@@ -5,39 +5,39 @@ tags:
 - ObZen
 ---
 &nbsp;
-#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul|Beams of fire sweep through my head]]
-#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul|Thrusts of pain increasingly engaged]]
-#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul|Sensory receptors succumb]]
-#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul|I am no one now, only agony]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#that-little-kiss-you-stole-it-held-my-heart-and-soul-vyl-wnanory|Beams of fire sweep through my head]] {#beams-of-fire-sweep-through-my-head-vyl-wnanory}
+#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#beams-of-fire-sweep-through-my-head-vyl-wnanory|Thrusts of pain increasingly engaged]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#thrusts-of-pain-increasingly-engaged-vyl-wnanory|Sensory receptors succumb]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/deathbeds.md#sensory-receptors-succumb-vyl-wnanory|I am no one now, only agony]]
 &nbsp;
-#### [[notes/p/pendulum/hold_your_colour/hold_your_colour.md#but-she-looked-into-your-eyes-and-saw-what-lay-beneath|My crimson liquid so frantically spilled]]
-#### [[notes/p/pendulum/hold_your_colour/hold_your_colour.md#but-she-looked-into-your-eyes-and-saw-what-lay-beneath|The ruby fluid of life unleashed]]
+#### [[notes/p/pendulum/hold_your_colour/hold_your_colour.md#but-she-looked-into-your-eyes-and-saw-what-lay-beneath-vyl-wnanory|My crimson liquid so frantically spilled]] {#my-crimson-liquid-so-frantically-spilled-vyl-wnanory}
+#### [[notes/p/pendulum/hold_your_colour/hold_your_colour.md#my-crimson-liquid-so-frantically-spilled-vyl-wnanory|The ruby fluid of life unleashed]]
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/snuff.md#bury-all-your-secrets-in-my-skin|Ripples ascend to the surface of my eyes]]
-#### [[notes/s/slipknot/all_hope_is_gone/snuff.md#bury-all-your-secrets-in-my-skin|Their red pens drawing at random, at will]]
-#### [[notes/s/slipknot/all_hope_is_gone/snuff.md#bury-all-your-secrets-in-my-skin|A myriad pains begotten in their wake]]
-#### [[notes/s/slipknot/all_hope_is_gone/snuff.md#bury-all-your-secrets-in-my-skin|The bastard spawn of a mutinous self]]
+#### [[notes/s/slipknot/all_hope_is_gone/snuff.md#bury-all-your-secrets-in-my-skin-vyl-wnanory|Ripples ascend to the surface of my eyes]] {#ripples-ascend-to-the-surface-of-my-eyes-vyl-wnanory}
+#### [[notes/s/slipknot/all_hope_is_gone/snuff.md#ripples-ascend-to-the-surface-of-my-eyes-vyl-wnanory|Their red pens drawing at random, at will]]
+#### [[notes/s/slipknot/all_hope_is_gone/snuff.md#their-red-pens-drawing-at-random-at-will-vyl-wnanory|A myriad pains begotten in their wake]]
+#### [[notes/s/slipknot/all_hope_is_gone/snuff.md#a-myriad-pains-begotten-in-their-wake-vyl-wnanory|The bastard spawn of a mutinous self]]
 &nbsp;
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/bury_your_flame.md#you-let-your-doubt-like-a-river|The regurgitation of my micro nemesis]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/bury_your_flame.md#you-let-your-doubt-like-a-river|Salivating red at the prospect of my ruin, my doom]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/bury_your_flame.md#you-let-your-doubt-like-a-river-vyl-wnanory|The regurgitation of my micro nemesis]] {#the-regurgitation-of-my-micro-nemesis-vyl-wnanory}
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/bury_your_flame.md#the-regurgitation-of-my-micro-nemesis-vyl-wnanory|Salivating red at the prospect of my ruin, my doom]]
 &nbsp;
-#### [[notes/o/opeth/watershed/the_lotus_eater.md#after-all-you-fell-in-love-with-death|Malfunction - the means for its ascent]]
-#### [[notes/o/opeth/watershed/the_lotus_eater.md#after-all-you-fell-in-love-with-death|Bloodletting - the stringent voice to beckon my soul]]
-#### [[notes/o/opeth/watershed/the_lotus_eater.md#after-all-you-fell-in-love-with-death|So futile, any resisting tension]]
-#### [[notes/o/opeth/watershed/the_lotus_eater.md#after-all-you-fell-in-love-with-death|As death-induced mechanics propel its growth]]
+#### [[notes/o/opeth/watershed/the_lotus_eater.md#after-all-you-fell-in-love-with-death-vyl-wnanory|Malfunction - the means for its ascent]] {#malfunction--the-means-for-its-ascent-vyl-wnanory}
+#### [[notes/o/opeth/watershed/the_lotus_eater.md#malfunction--the-means-for-its-ascent-vyl-wnanory|Bloodletting - the stringent voice to beckon my soul]]
+#### [[notes/o/opeth/watershed/the_lotus_eater.md#bloodletting--the-stringent-voice-to-beckon-my-soul-vyl-wnanory|So futile, any resisting tension]]
+#### [[notes/o/opeth/watershed/the_lotus_eater.md#so-futile-any-resisting-tension-vyl-wnanory|As death-induced mechanics propel its growth]]
 &nbsp;
-#### [[notes/h/heaven_shall_burn/invictus/the_omen.md#closing-your-eyes-is-nothing-but-surrender|The implement, the device of my extinction]]
-#### [[notes/h/heaven_shall_burn/invictus/the_omen.md#closing-your-eyes-is-nothing-but-surrender|The terminating clockwork of my gleeful bane]]
-#### [[notes/h/heaven_shall_burn/invictus/the_omen.md#closing-your-eyes-is-nothing-but-surrender|The definitive scourge of its mockery]]
-#### [[notes/h/heaven_shall_burn/invictus/the_omen.md#closing-your-eyes-is-nothing-but-surrender|The end-art instruments lethality attained]]
+#### [[notes/h/heaven_shall_burn/invictus/the_omen.md#closing-your-eyes-is-nothing-but-surrender-vyl-wnanory|The implement, the device of my extinction]] {#the-implement-the-device-of-my-extinction-vyl-wnanory}
+#### [[notes/h/heaven_shall_burn/invictus/the_omen.md#the-implement-the-device-of-my-extinction-vyl-wnanory|The terminating clockwork of my gleeful bane]]
+#### [[notes/h/heaven_shall_burn/invictus/the_omen.md#the-terminating-clockwork-of-my-gleeful-bane-vyl-wnanory|The definitive scourge of its mockery]]
+#### [[notes/h/heaven_shall_burn/invictus/the_omen.md#the-definitive-scourge-of-its-mockery-vyl-wnanory|The end-art instruments lethality attained]]
 &nbsp;
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-will-not-be-afraid--i-will-not-be-afraid|Heed - it commands, heed my will]]
-#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-will-not-be-afraid--i-will-not-be-afraid|Bleed - it says, bleed you will]]
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#i-will-not-be-afraid--i-will-not-be-afraid-vyl-wnanory|Heed - it commands, heed my will]] {#heed--it-commands-heed-my-will-vyl-wnanory}
+#### [[notes/s/stone_sour/come_whatever_may/hell__consequences.md#heed--it-commands-heed-my-will-vyl-wnanory|Bleed - it says, bleed you will]]
 &nbsp;
-#### [[notes/p/parcels/hideout/hideout.md#time-tells-me-more-of-who-that-i-am|Falling into the clarity of undoing]]
-#### [[notes/p/parcels/hideout/hideout.md#time-tells-me-more-of-who-that-i-am|Scornful gods haggle for my soul]]
-#### [[notes/p/parcels/hideout/hideout.md#time-tells-me-more-of-who-that-i-am|Mind's eye flickers and vascillates as I let go]]
-#### [[notes/p/parcels/hideout/hideout.md#time-tells-me-more-of-who-that-i-am|Taunting whispers accompany my deletion]]
+#### [[notes/p/parcels/hideout/hideout.md#time-tells-me-more-of-who-that-i-am-vyl-wnanory|Falling into the clarity of undoing]] {#falling-into-the-clarity-of-undoing-vyl-wnanory}
+#### [[notes/p/parcels/hideout/hideout.md#falling-into-the-clarity-of-undoing-vyl-wnanory|Scornful gods haggle for my soul]]
+#### [[notes/p/parcels/hideout/hideout.md#scornful-gods-haggle-for-my-soul-vyl-wnanory|Mind's eye flickers and vascillates as I let go]]
+#### [[notes/p/parcels/hideout/hideout.md#minds-eye-flickers-and-vascillates-as-i-let-go-vyl-wnanory|Taunting whispers accompany my deletion]]
 &nbsp;
-#### [[notes/a/august_burns_red/found_in_far_away_places/identity.md#you-want-to-cure-me-of-this-epidemic-you-call-me-sick|A sneering grin, the voice of my reaper]]
-#### [[notes/a/august_burns_red/found_in_far_away_places/identity.md#you-want-to-cure-me-of-this-epidemic-you-call-me-sick|Chanting softly the song of depletion]]
+#### [[notes/a/august_burns_red/found_in_far_away_places/identity.md#you-want-to-cure-me-of-this-epidemic-you-call-me-sick-vyl-wnanory|A sneering grin, the voice of my reaper]] {#a-sneering-grin-the-voice-of-my-reaper-vyl-wnanory}
+#### [[notes/a/august_burns_red/found_in_far_away_places/identity.md#a-sneering-grin-the-voice-of-my-reaper-vyl-wnanory|Chanting softly the song of depletion]]

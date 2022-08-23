@@ -5,42 +5,42 @@ tags:
 - Sempiternal
 ---
 &nbsp;
-#### [[notes/t/touché_amoré/is_survived_by/just_exist.md#if-again-im-asked-how-id-like-to-be-remembered|I know I bend and I break all my promises]]
-#### [[notes/t/touché_amoré/is_survived_by/just_exist.md#if-again-im-asked-how-id-like-to-be-remembered|But now it's time for the truth]]
-#### [[notes/t/touché_amoré/is_survived_by/just_exist.md#if-again-im-asked-how-id-like-to-be-remembered|I keep my head in the clouds and I hope that]]
-#### [[notes/t/touché_amoré/is_survived_by/just_exist.md#if-again-im-asked-how-id-like-to-be-remembered|I can just be invisible to you]]
+#### [[notes/t/touché_amoré/is_survived_by/just_exist.md#if-again-im-asked-how-id-like-to-be-remembered-vyl-wnanory|I know I bend and I break all my promises]] {#i-know-i-bend-and-i-break-all-my-promises-vyl-wnanory}
+#### [[notes/t/touché_amoré/is_survived_by/just_exist.md#i-know-i-bend-and-i-break-all-my-promises-vyl-wnanory|But now it's time for the truth]]
+#### [[notes/t/touché_amoré/is_survived_by/just_exist.md#but-now-its-time-for-the-truth-vyl-wnanory|I keep my head in the clouds and I hope that]]
+#### [[notes/t/touché_amoré/is_survived_by/just_exist.md#i-keep-my-head-in-the-clouds-and-i-hope-that-vyl-wnanory|I can just be invisible to you]]
 &nbsp;
-#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#please-dont-be-sad|Are you sick, are you tired, are you feeling faint?]]
-#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#please-dont-be-sad|Your lips are turning blue]]
-#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#please-dont-be-sad|I know you wish you were dead to the world]]
-#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#please-dont-be-sad|But there's something you should know]]
+#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#please-dont-be-sad-vyl-wnanory|Are you sick, are you tired, are you feeling faint?]] {#are-you-sick-are-you-tired-are-you-feeling-faint-vyl-wnanory}
+#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#are-you-sick-are-you-tired-are-you-feeling-faint-vyl-wnanory|Your lips are turning blue]]
+#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#your-lips-are-turning-blue-vyl-wnanory|I know you wish you were dead to the world]]
+#### [[notes/c/crying_vessel/pleasures_for_the_wicked/buried_alive.md#i-know-you-wish-you-were-dead-to-the-world-vyl-wnanory|But there's something you should know]]
 &nbsp;
-#### [[notes/i/iron_maiden/killers/another_life.md#as-i-lay-here-lying-on-my-bed|You're scared, I can see you tremble]]
-#### [[notes/i/iron_maiden/killers/another_life.md#as-i-lay-here-lying-on-my-bed|Shaking like a dog shitting razorblades]]
-#### [[notes/i/iron_maiden/killers/another_life.md#as-i-lay-here-lying-on-my-bed|Feel off shadows like a stranger]]
-#### [[notes/i/iron_maiden/killers/another_life.md#as-i-lay-here-lying-on-my-bed|Well, join the club, yeah, join the club]]
+#### [[notes/i/iron_maiden/killers/another_life.md#as-i-lay-here-lying-on-my-bed-vyl-wnanory|You're scared, I can see you tremble]] {#youre-scared-i-can-see-you-tremble-vyl-wnanory}
+#### [[notes/i/iron_maiden/killers/another_life.md#youre-scared-i-can-see-you-tremble-vyl-wnanory|Shaking like a dog shitting razorblades]]
+#### [[notes/i/iron_maiden/killers/another_life.md#shaking-like-a-dog-shitting-razorblades-vyl-wnanory|Feel off shadows like a stranger]]
+#### [[notes/i/iron_maiden/killers/another_life.md#feel-off-shadows-like-a-stranger-vyl-wnanory|Well, join the club, yeah, join the club]]
 &nbsp;
-#### [[notes/i/iron_maiden/killers/innocent_exile.md#im-running-away-no-where-to-go|Do you wish that you could cut yourself out of your skin?]]
-#### [[notes/i/iron_maiden/killers/innocent_exile.md#im-running-away-no-where-to-go|Well, join the club, yeah, join the club]]
-#### [[notes/i/iron_maiden/killers/innocent_exile.md#im-running-away-no-where-to-go|Or know what the fuck it'd take to feel that you fit in?]]
-#### [[notes/i/iron_maiden/killers/innocent_exile.md#im-running-away-no-where-to-go|Well, join the club, yeah, join the club]]
+#### [[notes/i/iron_maiden/killers/innocent_exile.md#im-running-away-no-where-to-go-vyl-wnanory|Do you wish that you could cut yourself out of your skin?]] {#do-you-wish-that-you-could-cut-yourself-out-of-your-skin-vyl-wnanory}
+#### [[notes/i/iron_maiden/killers/innocent_exile.md#do-you-wish-that-you-could-cut-yourself-out-of-your-skin-vyl-wnanory|Well, join the club, yeah, join the club]]
+#### [[notes/i/iron_maiden/killers/innocent_exile.md#well-join-the-club-yeah-join-the-club-vyl-wnanory|Or know what the fuck it'd take to feel that you fit in?]]
+#### [[notes/i/iron_maiden/killers/innocent_exile.md#or-know-what-the-fuck-itd-take-to-feel-that-you-fit-in-vyl-wnanory|Well, join the club, yeah, join the club]]
 &nbsp;
-#### [[notes/t/three_days_grace/life_starts_now/no_more.md#no-more-i-just-cant-live-here|Life is a song with no one to dance to]]
-#### [[notes/t/three_days_grace/life_starts_now/no_more.md#no-more-i-just-cant-live-here|The same old thing over that nobody knows]]
-#### [[notes/t/three_days_grace/life_starts_now/no_more.md#no-more-i-just-cant-live-here|My heart is a dead horse, there's no point in beating]]
-#### [[notes/t/three_days_grace/life_starts_now/no_more.md#no-more-i-just-cant-live-here|Just let me sink, let me sink into the fucking ground]]
+#### [[notes/t/three_days_grace/life_starts_now/no_more.md#no-more-i-just-cant-live-here-vyl-wnanory|Life is a song with no one to dance to]] {#life-is-a-song-with-no-one-to-dance-to-vyl-wnanory}
+#### [[notes/t/three_days_grace/life_starts_now/no_more.md#life-is-a-song-with-no-one-to-dance-to-vyl-wnanory|The same old thing over that nobody knows]]
+#### [[notes/t/three_days_grace/life_starts_now/no_more.md#the-same-old-thing-over-that-nobody-knows-vyl-wnanory|My heart is a dead horse, there's no point in beating]]
+#### [[notes/t/three_days_grace/life_starts_now/no_more.md#my-heart-is-a-dead-horse-theres-no-point-in-beating-vyl-wnanory|Just let me sink, let me sink into the fucking ground]]
 &nbsp;
-#### [[notes/j/jon_lajoie/you_want_some_of_this/sunday_afternoon.md#-fuck--|Fuck it]]
+#### [[notes/j/jon_lajoie/you_want_some_of_this/sunday_afternoon.md#-fuck-vyl-wnanory|Fuck it]] {#fuck-it-vyl-wnanory}
 &nbsp;
 #### You're scared, I can see you tremble
 #### Shaking like a dog shitting razorblades
 #### Feel off shadows like a stranger
 #### Well, join the club, yeah, join the club
 &nbsp;
-#### [[notes/t/twenty_one_pilots/vessel/screen.md#i-do-not-know-why-i-would-go|Do you think you're the only one]]
-#### [[notes/t/twenty_one_pilots/vessel/screen.md#i-do-not-know-why-i-would-go|Who feels the way you do?]]
-#### [[notes/t/twenty_one_pilots/vessel/screen.md#i-do-not-know-why-i-would-go|We're all fifty shades of fucked up]]
-#### [[notes/t/twenty_one_pilots/vessel/screen.md#i-do-not-know-why-i-would-go|Well, join the club, yeah, join the club]]
+#### [[notes/t/twenty_one_pilots/vessel/screen.md#i-do-not-know-why-i-would-go-vyl-wnanory|Do you think you're the only one]] {#do-you-think-youre-the-only-one-vyl-wnanory}
+#### [[notes/t/twenty_one_pilots/vessel/screen.md#do-you-think-youre-the-only-one-vyl-wnanory|Who feels the way you do?]]
+#### [[notes/t/twenty_one_pilots/vessel/screen.md#who-feels-the-way-you-do-vyl-wnanory|We're all fifty shades of fucked up]]
+#### [[notes/t/twenty_one_pilots/vessel/screen.md#were-all-fifty-shades-of-fucked-up-vyl-wnanory|Well, join the club, yeah, join the club]]
 &nbsp;
 #### I know I bend and I break all my promises
 #### But now it's time for the truth

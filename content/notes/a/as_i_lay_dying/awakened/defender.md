@@ -5,38 +5,38 @@ tags:
 - Awakened
 ---
 &nbsp;
-#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#so-step-inside-see-the-devil-in-i|Defender]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#so-step-inside-see-the-devil-in-i-vyl-wnanory|Defender]] {#defender-vyl-wnanory}
 &nbsp;
-#### [[notes/b/being_as_an_ocean/dear_gd/if_theyre_not_counted_count_me_out.md#there-is-such-hope-in-the-stories-weve-been-told|Fighting so hard to be heard]]
-#### [[notes/b/being_as_an_ocean/dear_gd/if_theyre_not_counted_count_me_out.md#there-is-such-hope-in-the-stories-weve-been-told|Yet having nothing to say]]
-#### [[notes/b/being_as_an_ocean/dear_gd/if_theyre_not_counted_count_me_out.md#there-is-such-hope-in-the-stories-weve-been-told|You talk about changing masses]]
-#### [[notes/b/being_as_an_ocean/dear_gd/if_theyre_not_counted_count_me_out.md#there-is-such-hope-in-the-stories-weve-been-told|But forget those close to you]]
+#### [[notes/b/being_as_an_ocean/dear_gd/if_theyre_not_counted_count_me_out.md#there-is-such-hope-in-the-stories-weve-been-told-vyl-wnanory|Fighting so hard to be heard]] {#fighting-so-hard-to-be-heard-vyl-wnanory}
+#### [[notes/b/being_as_an_ocean/dear_gd/if_theyre_not_counted_count_me_out.md#fighting-so-hard-to-be-heard-vyl-wnanory|Yet having nothing to say]]
+#### [[notes/b/being_as_an_ocean/dear_gd/if_theyre_not_counted_count_me_out.md#yet-having-nothing-to-say-vyl-wnanory|You talk about changing masses]]
+#### [[notes/b/being_as_an_ocean/dear_gd/if_theyre_not_counted_count_me_out.md#you-talk-about-changing-masses-vyl-wnanory|But forget those close to you]]
 &nbsp;
-#### [[notes/t/the_red_jumpsuit_apparatus/the_hell_or_high_water_ep/dont_hate.md#you-have-changed-but-we-still-stay-the-same|Most of us have given up]]
-#### [[notes/t/the_red_jumpsuit_apparatus/the_hell_or_high_water_ep/dont_hate.md#you-have-changed-but-we-still-stay-the-same|On these words that all sound the same]]
-#### [[notes/t/the_red_jumpsuit_apparatus/the_hell_or_high_water_ep/dont_hate.md#you-have-changed-but-we-still-stay-the-same|But I am still willing to believe]]
-#### [[notes/t/the_red_jumpsuit_apparatus/the_hell_or_high_water_ep/dont_hate.md#you-have-changed-but-we-still-stay-the-same|If you have done all that you can]]
+#### [[notes/t/the_red_jumpsuit_apparatus/the_hell_or_high_water_ep/dont_hate.md#you-have-changed-but-we-still-stay-the-same-vyl-wnanory|Most of us have given up]] {#most-of-us-have-given-up-vyl-wnanory}
+#### [[notes/t/the_red_jumpsuit_apparatus/the_hell_or_high_water_ep/dont_hate.md#most-of-us-have-given-up-vyl-wnanory|On these words that all sound the same]]
+#### [[notes/t/the_red_jumpsuit_apparatus/the_hell_or_high_water_ep/dont_hate.md#on-these-words-that-all-sound-the-same-vyl-wnanory|But I am still willing to believe]]
+#### [[notes/t/the_red_jumpsuit_apparatus/the_hell_or_high_water_ep/dont_hate.md#but-i-am-still-willing-to-believe-vyl-wnanory|If you have done all that you can]]
 &nbsp;
-#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#just-look-at-the-view|You can justify almost anything]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#just-look-at-the-view|If you are willing to be loud enough]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#just-look-at-the-view|But once you've spent everything]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#just-look-at-the-view|To change the world around you]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#just-look-at-the-view|Even if your voice is taken away]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#just-look-at-the-view|Such actions will still inspire]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#just-look-at-the-view-vyl-wnanory|You can justify almost anything]] {#you-can-justify-almost-anything-vyl-wnanory}
+#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#you-can-justify-almost-anything-vyl-wnanory|If you are willing to be loud enough]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#if-you-are-willing-to-be-loud-enough-vyl-wnanory|But once you've spent everything]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#but-once-youve-spent-everything-vyl-wnanory|To change the world around you]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#to-change-the-world-around-you-vyl-wnanory|Even if your voice is taken away]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/where_the_sun_never_sleeps.md#even-if-your-voice-is-taken-away-vyl-wnanory|Such actions will still inspire]]
 &nbsp;
 #### Most of us have given up
 #### On these words that all sound the same
 #### But I am still willing to believe
 #### If you have done all that you can
 &nbsp;
-#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#cant-say-ill-be-there-right-now|Drained]]
-#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#cant-say-ill-be-there-right-now|Spent]]
-#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#cant-say-ill-be-there-right-now|Determined]]
-#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#cant-say-ill-be-there-right-now|Intent]]
-#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#cant-say-ill-be-there-right-now|Now you've earned the right to be heard]]
+#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#cant-say-ill-be-there-right-now-vyl-wnanory|Drained]] {#drained-vyl-wnanory}
+#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#drained-vyl-wnanory|Spent]]
+#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#spent-vyl-wnanory|Determined]]
+#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#determined-vyl-wnanory|Intent]]
+#### [[notes/t/the_hickey_underworld/the_hickey_underworld/blonde_fire.md#intent-vyl-wnanory|Now you've earned the right to be heard]]
 &nbsp;
-#### [[notes/p/parkway_drive/ire/crushed.md#weve-been-crushed-by-the-fists-of-god|We've been deceived by elegant speech]]
-#### [[notes/p/parkway_drive/ire/crushed.md#weve-been-crushed-by-the-fists-of-god|Whose only concern is mere distraction]]
+#### [[notes/p/parkway_drive/ire/crushed.md#weve-been-crushed-by-the-fists-of-god-vyl-wnanory|We've been deceived by elegant speech]] {#weve-been-deceived-by-elegant-speech-vyl-wnanory}
+#### [[notes/p/parkway_drive/ire/crushed.md#weve-been-deceived-by-elegant-speech-vyl-wnanory|Whose only concern is mere distraction]]
 &nbsp;
 #### Defender
 &nbsp;
@@ -46,13 +46,13 @@ tags:
 #### Intent
 #### Now you've earned the right to be heard
 &nbsp;
-#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#wanted-man|I will follow to the grave]]
-#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#wanted-man|A man who's willing to die]]
+#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#wanted-man-vyl-wnanory|I will follow to the grave]] {#i-will-follow-to-the-grave-vyl-wnanory}
+#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#i-will-follow-to-the-grave-vyl-wnanory|A man who's willing to die]]
 &nbsp;
 #### Most of us have given up
 #### On these words that all sound the same
 #### But I am still willing to believe
 #### If you have done all that you can
 &nbsp;
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene|I am willing to die]]
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene|Defender]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene-vyl-wnanory|I am willing to die]] {#i-am-willing-to-die-vyl-wnanory}
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#i-am-willing-to-die-vyl-wnanory|Defender]]

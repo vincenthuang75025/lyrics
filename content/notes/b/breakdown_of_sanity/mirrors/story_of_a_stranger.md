@@ -5,43 +5,43 @@ tags:
 - Mirrors
 ---
 &nbsp;
-#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#im-no-leader-im-just-a-mess|Let me wake up]]
-#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#im-no-leader-im-just-a-mess|This is not my real life]]
-#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#im-no-leader-im-just-a-mess|Years of buildup]]
-#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#im-no-leader-im-just-a-mess|This can't be the end]]
-#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#im-no-leader-im-just-a-mess|No way]]
-#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#im-no-leader-im-just-a-mess|Please hold me]]
+#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#im-no-leader-im-just-a-mess-vyl-wnanory|Let me wake up]] {#let-me-wake-up-vyl-wnanory}
+#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#let-me-wake-up-vyl-wnanory|This is not my real life]]
+#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#this-is-not-my-real-life-vyl-wnanory|Years of buildup]]
+#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#years-of-buildup-vyl-wnanory|This can't be the end]]
+#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#this-cant-be-the-end-vyl-wnanory|No way]]
+#### [[notes/u/underoath/lost_in_the_sound_of_separation/anyone_can_dig_a_hole_but_it_takes_a_real_man_to_call_it_home.md#no-way-vyl-wnanory|Please hold me]]
 &nbsp;
-#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#down-in-a-hole-and-i-dont-know-if-i-can-be-saved|These cold raindrops on my tense face, is this the rain That goes along with me]]
-#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#down-in-a-hole-and-i-dont-know-if-i-can-be-saved|Let me feel your reliance and hope]]
-#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#down-in-a-hole-and-i-dont-know-if-i-can-be-saved|Can we take this barrier together]]
+#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#down-in-a-hole-and-i-dont-know-if-i-can-be-saved-vyl-wnanory|These cold raindrops on my tense face, is this the rain That goes along with me]] {#these-cold-raindrops-on-my-tense-face-is-this-the-rain-that-goes-along-with-me-vyl-wnanory}
+#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#these-cold-raindrops-on-my-tense-face-is-this-the-rain-that-goes-along-with-me-vyl-wnanory|Let me feel your reliance and hope]]
+#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#let-me-feel-your-reliance-and-hope-vyl-wnanory|Can we take this barrier together]]
 &nbsp;
-#### [[notes/s/sum_41/underclass_hero/with_me.md#thoughts-read-unspoken|Let me feel your hope]]
-#### [[notes/s/sum_41/underclass_hero/with_me.md#thoughts-read-unspoken|I wanna let go - no way]]
-#### [[notes/s/sum_41/underclass_hero/with_me.md#thoughts-read-unspoken|I don't wanna hear it]]
-#### [[notes/s/sum_41/underclass_hero/with_me.md#thoughts-read-unspoken|Now it's the point in time I always feared]]
-#### [[notes/s/sum_41/underclass_hero/with_me.md#thoughts-read-unspoken|I can feel the cold winds are striking my shakin' body]]
+#### [[notes/s/sum_41/underclass_hero/with_me.md#thoughts-read-unspoken-vyl-wnanory|Let me feel your hope]] {#let-me-feel-your-hope-vyl-wnanory}
+#### [[notes/s/sum_41/underclass_hero/with_me.md#let-me-feel-your-hope-vyl-wnanory|I wanna let go - no way]]
+#### [[notes/s/sum_41/underclass_hero/with_me.md#i-wanna-let-go--no-way-vyl-wnanory|I don't wanna hear it]]
+#### [[notes/s/sum_41/underclass_hero/with_me.md#i-dont-wanna-hear-it-vyl-wnanory|Now it's the point in time I always feared]]
+#### [[notes/s/sum_41/underclass_hero/with_me.md#now-its-the-point-in-time-i-always-feared-vyl-wnanory|I can feel the cold winds are striking my shakin' body]]
 &nbsp;
-#### [[notes/o/of_mice__men/restoring_force/youre_not_alone.md#youre-not-alone-youre-with-me|Not in my life, not with my heart]]
+#### [[notes/o/of_mice__men/restoring_force/youre_not_alone.md#youre-not-alone-youre-with-me-vyl-wnanory|Not in my life, not with my heart]] {#not-in-my-life-not-with-my-heart-vyl-wnanory}
 &nbsp;
-#### [[notes/l/linkin_park/a_thousand_suns/fallout.md#im-swimming-in-the-smoke|I hate the fate]]
-#### [[notes/l/linkin_park/a_thousand_suns/fallout.md#im-swimming-in-the-smoke|Till now I thought it would never happen to me again]]
-#### [[notes/l/linkin_park/a_thousand_suns/fallout.md#im-swimming-in-the-smoke|Will this break us]]
-#### [[notes/l/linkin_park/a_thousand_suns/fallout.md#im-swimming-in-the-smoke|Those are the tears, showing me the way]]
+#### [[notes/l/linkin_park/a_thousand_suns/fallout.md#im-swimming-in-the-smoke-vyl-wnanory|I hate the fate]] {#i-hate-the-fate-vyl-wnanory}
+#### [[notes/l/linkin_park/a_thousand_suns/fallout.md#i-hate-the-fate-vyl-wnanory|Till now I thought it would never happen to me again]]
+#### [[notes/l/linkin_park/a_thousand_suns/fallout.md#till-now-i-thought-it-would-never-happen-to-me-again-vyl-wnanory|Will this break us]]
+#### [[notes/l/linkin_park/a_thousand_suns/fallout.md#will-this-break-us-vyl-wnanory|Those are the tears, showing me the way]]
 &nbsp;
-#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#i-swear-this-isnt-the-end|This is a common crossing with just one destination]]
-#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#i-swear-this-isnt-the-end|Straight into loneliness]]
-#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#i-swear-this-isnt-the-end|I wanna leave this nightmare]]
-#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#i-swear-this-isnt-the-end|But the door is locked]]
-#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#i-swear-this-isnt-the-end|There is no light anymore]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#i-swear-this-isnt-the-end-vyl-wnanory|This is a common crossing with just one destination]] {#this-is-a-common-crossing-with-just-one-destination-vyl-wnanory}
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#this-is-a-common-crossing-with-just-one-destination-vyl-wnanory|Straight into loneliness]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#straight-into-loneliness-vyl-wnanory|I wanna leave this nightmare]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#i-wanna-leave-this-nightmare-vyl-wnanory|But the door is locked]]
+#### [[notes/b/being_as_an_ocean/dear_gd/this_loneliness_wont_be_the_death_of_me.md#but-the-door-is-locked-vyl-wnanory|There is no light anymore]]
 &nbsp;
-#### [[notes/d/daylight/jar/sponge.md#i-want-to-run-i-just-cant|I hate the fate]]
-#### [[notes/d/daylight/jar/sponge.md#i-want-to-run-i-just-cant|This is the story of a fuckin' stranger]]
+#### [[notes/d/daylight/jar/sponge.md#i-want-to-run-i-just-cant-vyl-wnanory|I hate the fate]]
+#### [[notes/d/daylight/jar/sponge.md#i-hate-the-fate-vyl-wnanory|This is the story of a fuckin' stranger]]
 &nbsp;
-#### [[notes/a/architects/hollow_crown/were_all_alone.md#in-time-youll-find-that|Hit me, let me wake up now,]]
-#### [[notes/a/architects/hollow_crown/were_all_alone.md#in-time-youll-find-that|Time disperses like sand in my hands]]
-#### [[notes/a/architects/hollow_crown/were_all_alone.md#in-time-youll-find-that|I can't believe it]]
+#### [[notes/a/architects/hollow_crown/were_all_alone.md#in-time-youll-find-that-vyl-wnanory|Hit me, let me wake up now,]] {#hit-me-let-me-wake-up-now-vyl-wnanory}
+#### [[notes/a/architects/hollow_crown/were_all_alone.md#hit-me-let-me-wake-up-now-vyl-wnanory|Time disperses like sand in my hands]]
+#### [[notes/a/architects/hollow_crown/were_all_alone.md#time-disperses-like-sand-in-my-hands-vyl-wnanory|I can't believe it]]
 &nbsp;
-#### [[notes/l/linkin_park/a_thousand_suns/burning_in_the_skies.md#im-swimming-in-the-smoke|I dream about the day]]
-#### [[notes/l/linkin_park/a_thousand_suns/burning_in_the_skies.md#im-swimming-in-the-smoke|It goes through our hearts]]
-#### [[notes/l/linkin_park/a_thousand_suns/burning_in_the_skies.md#im-swimming-in-the-smoke|Find the light.]]
+#### [[notes/l/linkin_park/a_thousand_suns/burning_in_the_skies.md#im-swimming-in-the-smoke-vyl-wnanory|I dream about the day]] {#i-dream-about-the-day-vyl-wnanory}
+#### [[notes/l/linkin_park/a_thousand_suns/burning_in_the_skies.md#i-dream-about-the-day-vyl-wnanory|It goes through our hearts]]
+#### [[notes/l/linkin_park/a_thousand_suns/burning_in_the_skies.md#it-goes-through-our-hearts-vyl-wnanory|Find the light.]]

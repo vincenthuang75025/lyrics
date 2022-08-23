@@ -5,29 +5,29 @@ tags:
 - Iconoclast
 ---
 &nbsp;
-#### [[notes/w/wham/music_from_the_edge_of_heaven/last_christmas.md#ahah|Screaming at the walls around me -]]
-#### [[notes/w/wham/music_from_the_edge_of_heaven/last_christmas.md#ahah|Broken and alone]]
-#### [[notes/w/wham/music_from_the_edge_of_heaven/last_christmas.md#ahah|Fighting with my inner demons is all I've ever known]]
+#### [[notes/w/wham/music_from_the_edge_of_heaven/last_christmas.md#ahah-vyl-wnanory|Screaming at the walls around me -]] {#screaming-at-the-walls-around-me--vyl-wnanory}
+#### [[notes/w/wham/music_from_the_edge_of_heaven/last_christmas.md#screaming-at-the-walls-around-me--vyl-wnanory|Broken and alone]]
+#### [[notes/w/wham/music_from_the_edge_of_heaven/last_christmas.md#broken-and-alone-vyl-wnanory|Fighting with my inner demons is all I've ever known]]
 &nbsp;
-#### [[notes/c/cypress_hill/stoned_raiders/trouble.md#nooooo|All I am - I give to you]]
-#### [[notes/c/cypress_hill/stoned_raiders/trouble.md#nooooo|All my dreams and nightmares, too]]
+#### [[notes/c/cypress_hill/stoned_raiders/trouble.md#nooooo-vyl-wnanory|All I am - I give to you]] {#all-i-am--i-give-to-you-vyl-wnanory}
+#### [[notes/c/cypress_hill/stoned_raiders/trouble.md#all-i-am--i-give-to-you-vyl-wnanory|All my dreams and nightmares, too]]
 &nbsp;
-#### [[notes/t/the_offspring/smash/gotta_get_away.md#whoaoahoah|Disconnected life of anguish -]]
-#### [[notes/t/the_offspring/smash/gotta_get_away.md#whoaoahoah|The mirror fades to black]]
-#### [[notes/t/the_offspring/smash/gotta_get_away.md#whoaoahoah|Feels like I'm sinking deep into illusion.]]
-#### [[notes/t/the_offspring/smash/gotta_get_away.md#whoaoahoah|No one's staring back]]
+#### [[notes/t/the_offspring/smash/gotta_get_away.md#whoaoahoah-vyl-wnanory|Disconnected life of anguish -]] {#disconnected-life-of-anguish--vyl-wnanory}
+#### [[notes/t/the_offspring/smash/gotta_get_away.md#disconnected-life-of-anguish--vyl-wnanory|The mirror fades to black]]
+#### [[notes/t/the_offspring/smash/gotta_get_away.md#the-mirror-fades-to-black-vyl-wnanory|Feels like I'm sinking deep into illusion.]]
+#### [[notes/t/the_offspring/smash/gotta_get_away.md#feels-like-im-sinking-deep-into-illusion-vyl-wnanory|No one's staring back]]
 &nbsp;
-#### [[notes/t/twenty_one_pilots/blurryface/not_today.md#ooh-ooh-ooh-ooh-ooh|Somewhere unseen - there's something between]]
-#### [[notes/t/twenty_one_pilots/blurryface/not_today.md#ooh-ooh-ooh-ooh-ooh|Is it the truth or a lie]]
+#### [[notes/t/twenty_one_pilots/blurryface/not_today.md#ooh-ooh-ooh-ooh-ooh-vyl-wnanory|Somewhere unseen - there's something between]] {#somewhere-unseen--theres-something-between-vyl-wnanory}
+#### [[notes/t/twenty_one_pilots/blurryface/not_today.md#somewhere-unseen--theres-something-between-vyl-wnanory|Is it the truth or a lie]]
 &nbsp;
-#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away|Can't you see - You and me]]
-#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away|We're Children of a Faceless God]]
-#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away|Misery is our destiny]]
-#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away|We're Children of a Faceless God]]
+#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away-vyl-wnanory|Can't you see - You and me]] {#cant-you-see--you-and-me-vyl-wnanory}
+#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#cant-you-see--you-and-me-vyl-wnanory|We're Children of a Faceless God]]
+#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#were-children-of-a-faceless-god-vyl-wnanory|Misery is our destiny]]
+#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#misery-is-our-destiny-vyl-wnanory|We're Children of a Faceless God]]
 &nbsp;
-#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away|Just another faceless shadow - I'm desensitized]]
-#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away|And I don't feel the pain, am I insane?]]
-#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away|My nightmare's realized]]
+#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#gone-away-vyl-wnanory|Just another faceless shadow - I'm desensitized]] {#just-another-faceless-shadow--im-desensitized-vyl-wnanory}
+#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#just-another-faceless-shadow--im-desensitized-vyl-wnanory|And I don't feel the pain, am I insane?]]
+#### [[notes/t/the_offspring/ixnay_on_the_hombre/gone_away.md#and-i-dont-feel-the-pain-am-i-insane-vyl-wnanory|My nightmare's realized]]
 &nbsp;
 #### Somewhere unseen - there's something between
 #### Is it the truth or a lie
@@ -37,20 +37,20 @@ tags:
 #### Misery is our destiny
 #### We're Children of a Faceless God
 &nbsp;
-#### [[notes/s/symphony_x/iconoclast/light_up_the_night.md#oh--have-we-gone-too-far-too-fast|All I have - I give to you]]
-#### [[notes/s/symphony_x/iconoclast/light_up_the_night.md#oh--have-we-gone-too-far-too-fast|All my dreams, my nightmares, too]]
+#### [[notes/s/symphony_x/iconoclast/light_up_the_night.md#oh--have-we-gone-too-far-too-fast-vyl-wnanory|All I have - I give to you]] {#all-i-have--i-give-to-you-vyl-wnanory}
+#### [[notes/s/symphony_x/iconoclast/light_up_the_night.md#all-i-have--i-give-to-you-vyl-wnanory|All my dreams, my nightmares, too]]
 &nbsp;
-#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#whoohoohoo-|Wretched promenade - watch the freak parade]]
-#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#whoohoohoo-|Celebrate the suffering and affliction]]
+#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#whoohoohoo-vyl-wnanory|Wretched promenade - watch the freak parade]] {#wretched-promenade--watch-the-freak-parade-vyl-wnanory}
+#### [[notes/a/alice_in_chains/dirt/down_in_a_hole.md#wretched-promenade--watch-the-freak-parade-vyl-wnanory|Celebrate the suffering and affliction]]
 &nbsp;
-#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-|Laugh at tragedy - worship sin with me]]
-#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-|Let us share in selfish addiction]]
+#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-vyl-wnanory|Laugh at tragedy - worship sin with me]] {#laugh-at-tragedy--worship-sin-with-me-vyl-wnanory}
+#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#laugh-at-tragedy--worship-sin-with-me-vyl-wnanory|Let us share in selfish addiction]]
 &nbsp;
-#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-|Spitting on the shrine - drink the poison wine]]
-#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-|Leave a life in ruins - tattered and torn]]
+#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-vyl-wnanory|Spitting on the shrine - drink the poison wine]] {#spitting-on-the-shrine--drink-the-poison-wine-vyl-wnanory}
+#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#spitting-on-the-shrine--drink-the-poison-wine-vyl-wnanory|Leave a life in ruins - tattered and torn]]
 &nbsp;
-#### [[notes/m/metallica/metallica/enter_sandman.md#boooooo|Completely interfaced to a God without a Face]]
-#### [[notes/m/metallica/metallica/enter_sandman.md#boooooo|In his image of darkness  I'm reborn]]
+#### [[notes/m/metallica/metallica/enter_sandman.md#boooooo-vyl-wnanory|Completely interfaced to a God without a Face]] {#completely-interfaced-to-a-god-without-a-face-vyl-wnanory}
+#### [[notes/m/metallica/metallica/enter_sandman.md#completely-interfaced-to-a-god-without-a-face-vyl-wnanory|In his image of darkness  I'm reborn]]
 &nbsp;
 #### Can't you see - You and me
 #### We're Children of a Faceless God

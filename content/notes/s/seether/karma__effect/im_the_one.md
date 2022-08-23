@@ -5,43 +5,43 @@ tags:
 - Karma & Effect
 ---
 &nbsp;
-#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-|Here she's coming and she's drunk again]]
-#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-|She's only seventeen]]
-#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-|Her daddy said "Well that's enough of that]]
-#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-|Come be my little queen"]]
+#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#aahah-vyl-wnanory|Here she's coming and she's drunk again]] {#here-shes-coming-and-shes-drunk-again-vyl-wnanory}
+#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#here-shes-coming-and-shes-drunk-again-vyl-wnanory|She's only seventeen]]
+#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#shes-only-seventeen-vyl-wnanory|Her daddy said "Well that's enough of that]]
+#### [[notes/l/lucy/grand_theft_auto_iii__lips_106_original_video_game_soundtrack/forever.md#her-daddy-said-well-thats-enough-of-that-vyl-wnanory|Come be my little queen"]]
 &nbsp;
-#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#and-this-is-what-the-girls-say|And now he's touching her wrong again]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#and-this-is-what-the-girls-say|He's gonna give her disease]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#and-this-is-what-the-girls-say|He never wanted it anyway]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#and-this-is-what-the-girls-say|He only does as he please]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#and-this-is-what-the-girls-say-vyl-wnanory|And now he's touching her wrong again]] {#and-now-hes-touching-her-wrong-again-vyl-wnanory}
+#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#and-now-hes-touching-her-wrong-again-vyl-wnanory|He's gonna give her disease]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#hes-gonna-give-her-disease-vyl-wnanory|He never wanted it anyway]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#he-never-wanted-it-anyway-vyl-wnanory|He only does as he please]]
 &nbsp;
-#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#hoo-hoo|Won't you tell her that I said I'm the one]]
-#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#hoo-hoo|I couldn't hurt her like everyone]]
-#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#hoo-hoo|And tell her that I said I'm the one]]
-#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#hoo-hoo|And I don't deserve her]]
+#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#hoo-hoo-vyl-wnanory|Won't you tell her that I said I'm the one]] {#wont-you-tell-her-that-i-said-im-the-one-vyl-wnanory}
+#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#wont-you-tell-her-that-i-said-im-the-one-vyl-wnanory|I couldn't hurt her like everyone]]
+#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#i-couldnt-hurt-her-like-everyone-vyl-wnanory|And tell her that I said I'm the one]]
+#### [[notes/t/the_last_internationale/we_will_reign/wanted_man.md#and-tell-her-that-i-said-im-the-one-vyl-wnanory|And I don't deserve her]]
 &nbsp;
-#### [[notes/s/stone_sour/come_whatever_may/cardiff.md#woahyeah|Here he's coming and he's drunk again]]
-#### [[notes/s/stone_sour/come_whatever_may/cardiff.md#woahyeah|He's on amphetamines]]
-#### [[notes/s/stone_sour/come_whatever_may/cardiff.md#woahyeah|Scratch his nails down the other leg]]
-#### [[notes/s/stone_sour/come_whatever_may/cardiff.md#woahyeah|'Cause you're my little queen]]
+#### [[notes/s/stone_sour/come_whatever_may/cardiff.md#woahyeah-vyl-wnanory|Here he's coming and he's drunk again]] {#here-hes-coming-and-hes-drunk-again-vyl-wnanory}
+#### [[notes/s/stone_sour/come_whatever_may/cardiff.md#here-hes-coming-and-hes-drunk-again-vyl-wnanory|He's on amphetamines]]
+#### [[notes/s/stone_sour/come_whatever_may/cardiff.md#hes-on-amphetamines-vyl-wnanory|Scratch his nails down the other leg]]
+#### [[notes/s/stone_sour/come_whatever_may/cardiff.md#scratch-his-nails-down-the-other-leg-vyl-wnanory|'Cause you're my little queen]]
 &nbsp;
-#### [[notes/p/peter_murphy/deep/cuts_you_up.md#ohohoohah|And now he's touching her wrong again]]
-#### [[notes/p/peter_murphy/deep/cuts_you_up.md#ohohoohah|She's only trying to get by]]
-#### [[notes/p/peter_murphy/deep/cuts_you_up.md#ohohoohah|He never wanted it anyway]]
-#### [[notes/p/peter_murphy/deep/cuts_you_up.md#ohohoohah|He never soils the child]]
-&nbsp;
-#### Won't you tell her that I said I'm the one
-#### I couldn't hurt her like everyone
-#### And tell her that I said I'm the one
-#### And I don't deserve her
+#### [[notes/p/peter_murphy/deep/cuts_you_up.md#ohohoohah-vyl-wnanory|And now he's touching her wrong again]]
+#### [[notes/p/peter_murphy/deep/cuts_you_up.md#and-now-hes-touching-her-wrong-again-vyl-wnanory|She's only trying to get by]]
+#### [[notes/p/peter_murphy/deep/cuts_you_up.md#shes-only-trying-to-get-by-vyl-wnanory|He never wanted it anyway]]
+#### [[notes/p/peter_murphy/deep/cuts_you_up.md#he-never-wanted-it-anyway-vyl-wnanory|He never soils the child]]
 &nbsp;
 #### Won't you tell her that I said I'm the one
 #### I couldn't hurt her like everyone
 #### And tell her that I said I'm the one
 #### And I don't deserve her
 &nbsp;
-#### [[notes/a/a_day_to_remember/common_courtesy/right_back_at_it_again.md#were-coming-out-swinging|We're coming for you]]
-#### [[notes/a/a_day_to_remember/common_courtesy/right_back_at_it_again.md#were-coming-out-swinging|You]]
+#### Won't you tell her that I said I'm the one
+#### I couldn't hurt her like everyone
+#### And tell her that I said I'm the one
+#### And I don't deserve her
+&nbsp;
+#### [[notes/a/a_day_to_remember/common_courtesy/right_back_at_it_again.md#were-coming-out-swinging-vyl-wnanory|We're coming for you]] {#were-coming-for-you-vyl-wnanory}
+#### [[notes/a/a_day_to_remember/common_courtesy/right_back_at_it_again.md#were-coming-for-you-vyl-wnanory|You]]
 &nbsp;
 #### Won't you tell her that I said I'm the one
 #### I couldn't hurt her like everyone

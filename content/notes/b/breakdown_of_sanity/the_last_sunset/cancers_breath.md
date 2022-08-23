@@ -5,33 +5,33 @@ tags:
 - The Last Sunset
 ---
 &nbsp;
-#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now|You made me bleed inside]]
-#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now|Stop hide and seek]]
-#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now|It's time to face the fact]]
-#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now|I think we reached our flatline now]]
+#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#imma-do-my-thing-let-me-tell-you-right-now-vyl-wnanory|You made me bleed inside]] {#you-made-me-bleed-inside-vyl-wnanory}
+#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#you-made-me-bleed-inside-vyl-wnanory|Stop hide and seek]]
+#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#stop-hide-and-seek-vyl-wnanory|It's time to face the fact]]
+#### [[notes/c/cypress_hill/rise_up/get_it_anyway.md#its-time-to-face-the-fact-vyl-wnanory|I think we reached our flatline now]]
 &nbsp;
-#### [[notes/t/twenty_one_pilots/vessel/ode_to_sleep.md#you-have-no-plans-for-me|What have we become?]]
-#### [[notes/t/twenty_one_pilots/vessel/ode_to_sleep.md#you-have-no-plans-for-me|This is human error]]
-#### [[notes/t/twenty_one_pilots/vessel/ode_to_sleep.md#you-have-no-plans-for-me|A bloodbath with no sense in it]]
+#### [[notes/t/twenty_one_pilots/vessel/ode_to_sleep.md#you-have-no-plans-for-me-vyl-wnanory|What have we become?]] {#what-have-we-become-vyl-wnanory}
+#### [[notes/t/twenty_one_pilots/vessel/ode_to_sleep.md#what-have-we-become-vyl-wnanory|This is human error]]
+#### [[notes/t/twenty_one_pilots/vessel/ode_to_sleep.md#this-is-human-error-vyl-wnanory|A bloodbath with no sense in it]]
 &nbsp;
-#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|So finish harassing me]]
-#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself|You're like the perfect murder]]
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#sometimes-when-no-ones-left-to-listen-ill-sit-and-argue-with-myself-vyl-wnanory|So finish harassing me]] {#so-finish-harassing-me-vyl-wnanory}
+#### [[notes/a/a_day_to_remember/common_courtesy/life__11.md#so-finish-harassing-me-vyl-wnanory|You're like the perfect murder]]
 &nbsp;
-#### [[notes/d/defeater/letters_home/no_faith.md#im-a-man-of-no-faith|You act with no remorse]]
-#### [[notes/d/defeater/letters_home/no_faith.md#im-a-man-of-no-faith|No empathy at all]]
-#### [[notes/d/defeater/letters_home/no_faith.md#im-a-man-of-no-faith|But I miss your disease]]
+#### [[notes/d/defeater/letters_home/no_faith.md#im-a-man-of-no-faith-vyl-wnanory|You act with no remorse]] {#you-act-with-no-remorse-vyl-wnanory}
+#### [[notes/d/defeater/letters_home/no_faith.md#you-act-with-no-remorse-vyl-wnanory|No empathy at all]]
+#### [[notes/d/defeater/letters_home/no_faith.md#no-empathy-at-all-vyl-wnanory|But I miss your disease]]
 &nbsp;
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#youre-laying-here-with-a-beds-eye-view-of-a-body-that-no-longer-belongs-to-you|Miss your disease / it's your disease]]
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#youre-laying-here-with-a-beds-eye-view-of-a-body-that-no-longer-belongs-to-you|Your game, your rules]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#youre-laying-here-with-a-beds-eye-view-of-a-body-that-no-longer-belongs-to-you-vyl-wnanory|Miss your disease / it's your disease]] {#miss-your-disease--its-your-disease-vyl-wnanory}
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/good_times.md#miss-your-disease--its-your-disease-vyl-wnanory|Your game, your rules]]
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#my-guilt-and-my-shame|This is my system's failure / self-destructive]]
-#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#my-guilt-and-my-shame|A throat cut of consciousness]]
-#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#my-guilt-and-my-shame|I'm still suffocating]]
-#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#my-guilt-and-my-shame|It was your game, your rules]]
-#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#my-guilt-and-my-shame|I never really got a chance to win against your mania]]
-#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#my-guilt-and-my-shame|But listen, fuck your trip!]]
+#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#my-guilt-and-my-shame-vyl-wnanory|This is my system's failure / self-destructive]] {#this-is-my-systems-failure--selfdestructive-vyl-wnanory}
+#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#this-is-my-systems-failure--selfdestructive-vyl-wnanory|A throat cut of consciousness]]
+#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#a-throat-cut-of-consciousness-vyl-wnanory|I'm still suffocating]]
+#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#im-still-suffocating-vyl-wnanory|It was your game, your rules]]
+#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#it-was-your-game-your-rules-vyl-wnanory|I never really got a chance to win against your mania]]
+#### [[notes/s/slipknot/all_hope_is_gone/sulfur.md#i-never-really-got-a-chance-to-win-against-your-mania-vyl-wnanory|But listen, fuck your trip!]]
 &nbsp;
-#### [[notes/n/neffex/fight_back__the_collection/make_it.md#ima-make-you-take-it-take-it-take-it-all-back|This time you were no crack addict]]
+#### [[notes/n/neffex/fight_back__the_collection/make_it.md#ima-make-you-take-it-take-it-take-it-all-back-vyl-wnanory|This time you were no crack addict]] {#this-time-you-were-no-crack-addict-vyl-wnanory}
 &nbsp;
-#### [[notes/r/rem/out_of_time/losing_my_religion.md#thats-me-in-the-corner|Anyway, I wish you some peace of mind]]
-#### [[notes/r/rem/out_of_time/losing_my_religion.md#thats-me-in-the-corner|Hope you can change a bit and breath for a while]]
+#### [[notes/r/rem/out_of_time/losing_my_religion.md#thats-me-in-the-corner-vyl-wnanory|Anyway, I wish you some peace of mind]] {#anyway-i-wish-you-some-peace-of-mind-vyl-wnanory}
+#### [[notes/r/rem/out_of_time/losing_my_religion.md#anyway-i-wish-you-some-peace-of-mind-vyl-wnanory|Hope you can change a bit and breath for a while]]

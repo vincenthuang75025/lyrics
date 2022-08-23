@@ -5,7 +5,7 @@ tags:
 - In Silico
 ---
 &nbsp;
-#### [[notes/m/mad_season/above/slip_away.md#just-a-slip-away|Just let it slowly drift away, drift away]]
-#### [[notes/m/mad_season/above/slip_away.md#just-a-slip-away|Just let it slowly drift away, drift away]]
-#### [[notes/m/mad_season/above/slip_away.md#just-a-slip-away|Just let it slowly drift away, drift away]]
-#### [[notes/m/mad_season/above/slip_away.md#just-a-slip-away|Just let it slowly drift away, drift away]]
+#### [[notes/m/mad_season/above/slip_away.md#just-a-slip-away-vyl-wnanory|Just let it slowly drift away, drift away]] {#just-let-it-slowly-drift-away-drift-away-vyl-wnanory}
+#### [[notes/m/mad_season/above/slip_away.md#just-let-it-slowly-drift-away-drift-away-vyl-wnanory|Just let it slowly drift away, drift away]]
+#### [[notes/m/mad_season/above/slip_away.md#just-let-it-slowly-drift-away-drift-away-vyl-wnanory|Just let it slowly drift away, drift away]]
+#### [[notes/m/mad_season/above/slip_away.md#just-let-it-slowly-drift-away-drift-away-vyl-wnanory|Just let it slowly drift away, drift away]]

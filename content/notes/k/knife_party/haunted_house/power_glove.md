@@ -5,7 +5,7 @@ tags:
 - Haunted House
 ---
 &nbsp;
-#### [[notes/a/antiflag/the_general_strike/broken_bones.md#so-now-youre-livin|Now you're playing with power!]]
+#### [[notes/a/antiflag/the_general_strike/broken_bones.md#so-now-youre-livin-vyl-wnanory|Now you're playing with power!]] {#now-youre-playing-with-power-vyl-wnanory}
 &nbsp;
 #### Now you're playing with power!
 &nbsp;

@@ -5,33 +5,33 @@ tags:
 - Violator
 ---
 &nbsp;
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#reach-out-and-touch-faith|Reach out and touch faith]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#reach-out-and-touch-faith-vyl-wnanory|Reach out and touch faith]] {#reach-out-and-touch-faith-vyl-wnanory}
 &nbsp;
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Your own]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Personal]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Jesus]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Someone to hear your prayers]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Someone who cares]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus-vyl-wnanory|Your own]] {#your-own-vyl-wnanory}
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-vyl-wnanory|Personal]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#personal-vyl-wnanory|Jesus]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#jesus-vyl-wnanory|Someone to hear your prayers]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#someone-to-hear-your-prayers-vyl-wnanory|Someone who cares]]
 &nbsp;
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Your own (your own)]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Personal]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Jesus]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Someone to hear your prayers]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Someone who's there]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus-vyl-wnanory|Your own (your own)]] {#your-own-your-own-vyl-wnanory}
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-your-own-vyl-wnanory|Personal]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#personal-vyl-wnanory|Jesus]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#jesus-vyl-wnanory|Someone to hear your prayers]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#someone-to-hear-your-prayers-vyl-wnanory|Someone who's there]]
 &nbsp;
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|Feeling unknown]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|And you're all alone]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|Flesh and bone]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|By the telephone]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|Lift up the receiver]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|I'll make you a believer]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown-vyl-wnanory|Feeling unknown]] {#feeling-unknown-vyl-wnanory}
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown-vyl-wnanory|And you're all alone]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#and-youre-all-alone-vyl-wnanory|Flesh and bone]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#flesh-and-bone-vyl-wnanory|By the telephone]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#by-the-telephone-vyl-wnanory|Lift up the receiver]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#lift-up-the-receiver-vyl-wnanory|I'll make you a believer]]
 &nbsp;
-#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#now-every-bone-is-cracking-in|Take second best]]
-#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#now-every-bone-is-cracking-in|Put me to the test]]
-#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#now-every-bone-is-cracking-in|Things on your chest]]
-#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#now-every-bone-is-cracking-in|You need to confess]]
-#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#now-every-bone-is-cracking-in|I will deliver]]
-#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#now-every-bone-is-cracking-in|You know I'm a forgiver]]
+#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#now-every-bone-is-cracking-in-vyl-wnanory|Take second best]] {#take-second-best-vyl-wnanory}
+#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#take-second-best-vyl-wnanory|Put me to the test]]
+#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#put-me-to-the-test-vyl-wnanory|Things on your chest]]
+#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#things-on-your-chest-vyl-wnanory|You need to confess]]
+#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#you-need-to-confess-vyl-wnanory|I will deliver]]
+#### [[notes/g/godhead/evolver/ghost_of_your_memory.md#i-will-deliver-vyl-wnanory|You know I'm a forgiver]]
 &nbsp;
 #### Reach out and touch faith
 &nbsp;
@@ -49,29 +49,29 @@ tags:
 #### Someone to hear your prayers
 #### Someone who's there
 &nbsp;
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|Feeling unknown]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|And you're all alone]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|Flesh and bone]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|By the telephone (telephone)]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|Lift up the receiver]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown|I'll make you a believer]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown-vyl-wnanory|Feeling unknown]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#feeling-unknown-vyl-wnanory|And you're all alone]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#and-youre-all-alone-vyl-wnanory|Flesh and bone]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#flesh-and-bone-vyl-wnanory|By the telephone (telephone)]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#by-the-telephone-telephone-vyl-wnanory|Lift up the receiver]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#lift-up-the-receiver-vyl-wnanory|I'll make you a believer]]
 &nbsp;
-#### [[notes/g/girls_under_glass/equilibrium/its_you.md#its-you|I will deliver]]
-#### [[notes/g/girls_under_glass/equilibrium/its_you.md#its-you|You know I'm a forgiver]]
-&nbsp;
-#### Reach out and touch faith
-&nbsp;
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Your own]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Personal]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus|Jesus]]
+#### [[notes/g/girls_under_glass/equilibrium/its_you.md#its-you-vyl-wnanory|I will deliver]] {#i-will-deliver-vyl-wnanory}
+#### [[notes/g/girls_under_glass/equilibrium/its_you.md#i-will-deliver-vyl-wnanory|You know I'm a forgiver]]
 &nbsp;
 #### Reach out and touch faith
 &nbsp;
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-personal-jesus-vyl-wnanory|Your own]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#your-own-vyl-wnanory|Personal]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/personal_jesus.md#personal-vyl-wnanory|Jesus]]
+&nbsp;
+#### Reach out and touch faith
+&nbsp;
 #### Reach out and touch faith
 &nbsp;
 #### Reach out and touch faith
 &nbsp;
-#### [[notes/t/touché_amoré/is_survived_by/kerosene.md#its-the-side-effects-of-adoration|(Reach out, reach out)]]
+#### [[notes/t/touché_amoré/is_survived_by/kerosene.md#its-the-side-effects-of-adoration-vyl-wnanory|(Reach out, reach out)]] {#reach-out-reach-out-vyl-wnanory}
 &nbsp;
 #### Reach out and touch faith
 &nbsp;

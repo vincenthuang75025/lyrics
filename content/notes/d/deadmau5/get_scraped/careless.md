@@ -5,23 +5,23 @@ tags:
 - Get Scraped
 ---
 &nbsp;
-#### [[notes/s/stick_to_your_guns/the_hope_division/amber.md#you-dont-have-to-be-alone|You're weak and you're gullible,]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/amber.md#you-dont-have-to-be-alone|and I don't care.]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/amber.md#you-dont-have-to-be-alone-vyl-wnanory|You're weak and you're gullible,]] {#youre-weak-and-youre-gullible-vyl-wnanory}
+#### [[notes/s/stick_to_your_guns/the_hope_division/amber.md#youre-weak-and-youre-gullible-vyl-wnanory|and I don't care.]]
 &nbsp;
-#### [[notes/z/zanias/unearthed/undreamt.md#every-time-youre-walking-by|You're a walking disaster,]]
-#### [[notes/z/zanias/unearthed/undreamt.md#every-time-youre-walking-by|and I don't care.]]
+#### [[notes/z/zanias/unearthed/undreamt.md#every-time-youre-walking-by-vyl-wnanory|You're a walking disaster,]] {#youre-a-walking-disaster-vyl-wnanory}
+#### [[notes/z/zanias/unearthed/undreamt.md#youre-a-walking-disaster-vyl-wnanory|and I don't care.]]
 &nbsp;
-#### [[notes/e/emigrate/emigrate/you_can’t_get_enough.md#dont|You cry yourself to sleep,]]
-#### [[notes/e/emigrate/emigrate/you_can’t_get_enough.md#dont|and I don't care.]]
+#### [[notes/e/emigrate/emigrate/you_can’t_get_enough.md#dont-vyl-wnanory|You cry yourself to sleep,]] {#you-cry-yourself-to-sleep-vyl-wnanory}
+#### [[notes/e/emigrate/emigrate/you_can’t_get_enough.md#you-cry-yourself-to-sleep-vyl-wnanory|and I don't care.]]
 &nbsp;
-#### [[notes/d/defeater/empty_days__sleepless_nights/i_dont_mind.md#and-i-dont-mind|You're wasting our time,]]
-#### [[notes/d/defeater/empty_days__sleepless_nights/i_dont_mind.md#and-i-dont-mind|and I don't care.]]
+#### [[notes/d/defeater/empty_days__sleepless_nights/i_dont_mind.md#and-i-dont-mind-vyl-wnanory|You're wasting our time,]] {#youre-wasting-our-time-vyl-wnanory}
+#### [[notes/d/defeater/empty_days__sleepless_nights/i_dont_mind.md#youre-wasting-our-time-vyl-wnanory|and I don't care.]]
 &nbsp;
-#### [[notes/m/monster_magnet/powertrip/space_lord.md#built-in-my-nightmares-and-using-my-name|You knew this day would come, and it did,]]
-#### [[notes/m/monster_magnet/powertrip/space_lord.md#built-in-my-nightmares-and-using-my-name|and you really should have waited.]]
+#### [[notes/m/monster_magnet/powertrip/space_lord.md#built-in-my-nightmares-and-using-my-name-vyl-wnanory|You knew this day would come, and it did,]] {#you-knew-this-day-would-come-and-it-did-vyl-wnanory}
+#### [[notes/m/monster_magnet/powertrip/space_lord.md#you-knew-this-day-would-come-and-it-did-vyl-wnanory|and you really should have waited.]]
 &nbsp;
-#### [[notes/d/deez_nuts/bout_it/go_fuck_yourself.md#go-fuck-yourself|Go cry yourself to sleep, and you should,]]
-#### [[notes/d/deez_nuts/bout_it/go_fuck_yourself.md#go-fuck-yourself|because I'm so faded.]]
+#### [[notes/d/deez_nuts/bout_it/go_fuck_yourself.md#go-fuck-yourself-vyl-wnanory|Go cry yourself to sleep, and you should,]] {#go-cry-yourself-to-sleep-and-you-should-vyl-wnanory}
+#### [[notes/d/deez_nuts/bout_it/go_fuck_yourself.md#go-cry-yourself-to-sleep-and-you-should-vyl-wnanory|because I'm so faded.]]
 &nbsp;
 #### You knew this day would come, and it did,
 #### and you really should have waited.
@@ -29,14 +29,14 @@ tags:
 #### Go cry yourself to sleep, and you should,
 #### because I'm so faded.
 &nbsp;
-#### [[notes/b/boy_harsher/yr_body_is_nothing/suitor.md#dont|You contradict everything,]]
-#### [[notes/b/boy_harsher/yr_body_is_nothing/suitor.md#dont|and I don't care.]]
+#### [[notes/b/boy_harsher/yr_body_is_nothing/suitor.md#dont-vyl-wnanory|You contradict everything,]] {#you-contradict-everything-vyl-wnanory}
+#### [[notes/b/boy_harsher/yr_body_is_nothing/suitor.md#you-contradict-everything-vyl-wnanory|and I don't care.]]
 &nbsp;
-#### [[notes/b/boy_harsher/yr_body_is_nothing/suitor.md#dont|Your logic is twisted,]]
-#### [[notes/b/boy_harsher/yr_body_is_nothing/suitor.md#dont|and I don't care.]]
+#### [[notes/b/boy_harsher/yr_body_is_nothing/suitor.md#dont-vyl-wnanory|Your logic is twisted,]] {#your-logic-is-twisted-vyl-wnanory}
+#### [[notes/b/boy_harsher/yr_body_is_nothing/suitor.md#your-logic-is-twisted-vyl-wnanory|and I don't care.]]
 &nbsp;
-#### [[notes/b/boy_harsher/country_girl_uncut/country_girl.md#dont-be|I'll pretend to be happy,]]
-#### [[notes/b/boy_harsher/country_girl_uncut/country_girl.md#dont-be|and I don't care.]]
+#### [[notes/b/boy_harsher/country_girl_uncut/country_girl.md#dont-be-vyl-wnanory|I'll pretend to be happy,]] {#ill-pretend-to-be-happy-vyl-wnanory}
+#### [[notes/b/boy_harsher/country_girl_uncut/country_girl.md#ill-pretend-to-be-happy-vyl-wnanory|and I don't care.]]
 &nbsp;
 #### You cry yourself to sleep,
 #### and I don't care.

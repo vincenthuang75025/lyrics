@@ -5,27 +5,27 @@ tags:
 - Karma & Effect
 ---
 &nbsp;
-#### [[notes/t/the_ghost_inside/get_what_you_give/white_light.md#so-make-way-for-the-man-in-black|I try to hide myself]]
-#### [[notes/t/the_ghost_inside/get_what_you_give/white_light.md#so-make-way-for-the-man-in-black|Give this to someone else]]
-#### [[notes/t/the_ghost_inside/get_what_you_give/white_light.md#so-make-way-for-the-man-in-black|My hands are stained with scum]]
-#### [[notes/t/the_ghost_inside/get_what_you_give/white_light.md#so-make-way-for-the-man-in-black|Wish I could wash it away]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/white_light.md#so-make-way-for-the-man-in-black-vyl-wnanory|I try to hide myself]] {#i-try-to-hide-myself-vyl-wnanory}
+#### [[notes/t/the_ghost_inside/get_what_you_give/white_light.md#i-try-to-hide-myself-vyl-wnanory|Give this to someone else]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/white_light.md#give-this-to-someone-else-vyl-wnanory|My hands are stained with scum]]
+#### [[notes/t/the_ghost_inside/get_what_you_give/white_light.md#my-hands-are-stained-with-scum-vyl-wnanory|Wish I could wash it away]]
 &nbsp;
-#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away|You keep taking, taking away]]
-#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away|And keep breaking, breaking, break]]
+#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away-vyl-wnanory|You keep taking, taking away]] {#you-keep-taking-taking-away-vyl-wnanory}
+#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#you-keep-taking-taking-away-vyl-wnanory|And keep breaking, breaking, break]]
 &nbsp;
-#### [[notes/m/mother_love_bone/apple/gentle_groove.md#oohoohoohoo|I can't believe in yesterday]]
-#### [[notes/m/mother_love_bone/apple/gentle_groove.md#oohoohoohoo|I feel you coming in]]
-#### [[notes/m/mother_love_bone/apple/gentle_groove.md#oohoohoohoo|I can't just stand by and watch you]]
-#### [[notes/m/mother_love_bone/apple/gentle_groove.md#oohoohoohoo|Save yourself as you fall from grace]]
-#### [[notes/m/mother_love_bone/apple/gentle_groove.md#oohoohoohoo|When you come around, I won't be your sympathy]]
+#### [[notes/m/mother_love_bone/apple/gentle_groove.md#oohoohoohoo-vyl-wnanory|I can't believe in yesterday]] {#i-cant-believe-in-yesterday-vyl-wnanory}
+#### [[notes/m/mother_love_bone/apple/gentle_groove.md#i-cant-believe-in-yesterday-vyl-wnanory|I feel you coming in]]
+#### [[notes/m/mother_love_bone/apple/gentle_groove.md#i-feel-you-coming-in-vyl-wnanory|I can't just stand by and watch you]]
+#### [[notes/m/mother_love_bone/apple/gentle_groove.md#i-cant-just-stand-by-and-watch-you-vyl-wnanory|Save yourself as you fall from grace]]
+#### [[notes/m/mother_love_bone/apple/gentle_groove.md#save-yourself-as-you-fall-from-grace-vyl-wnanory|When you come around, I won't be your sympathy]]
 &nbsp;
-#### [[notes/c/crying_vessel/necrozine/suffering.md#ooh|The worst is over now]]
-#### [[notes/c/crying_vessel/necrozine/suffering.md#ooh|You said it anyhow]]
-#### [[notes/c/crying_vessel/necrozine/suffering.md#ooh|My life in monochrome]]
-#### [[notes/c/crying_vessel/necrozine/suffering.md#ooh|Wish I could regain control]]
+#### [[notes/c/crying_vessel/necrozine/suffering.md#ooh-vyl-wnanory|The worst is over now]] {#the-worst-is-over-now-vyl-wnanory}
+#### [[notes/c/crying_vessel/necrozine/suffering.md#the-worst-is-over-now-vyl-wnanory|You said it anyhow]]
+#### [[notes/c/crying_vessel/necrozine/suffering.md#you-said-it-anyhow-vyl-wnanory|My life in monochrome]]
+#### [[notes/c/crying_vessel/necrozine/suffering.md#my-life-in-monochrome-vyl-wnanory|Wish I could regain control]]
 &nbsp;
-#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away|You keep taking, taking away]]
-#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away|I keep faking, faking, fake]]
+#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away-vyl-wnanory|You keep taking, taking away]]
+#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#you-keep-taking-taking-away-vyl-wnanory|I keep faking, faking, fake]]
 &nbsp;
 #### I can't believe in yesterday
 #### I feel you coming in
@@ -33,20 +33,20 @@ tags:
 #### Save yourself as you fall from grace
 #### When you come around, I won't be your sympathy
 &nbsp;
-#### [[notes/a/a_perfect_circle/mer_de_noms/the_hollow.md#feed-me-here-fill-me-up-again|Find me, feel me, fill me, then cut me up again]]
-#### [[notes/a/a_perfect_circle/mer_de_noms/the_hollow.md#feed-me-here-fill-me-up-again|Find me, feel me, fill me, then cut me up]]
+#### [[notes/a/a_perfect_circle/mer_de_noms/the_hollow.md#feed-me-here-fill-me-up-again-vyl-wnanory|Find me, feel me, fill me, then cut me up again]] {#find-me-feel-me-fill-me-then-cut-me-up-again-vyl-wnanory}
+#### [[notes/a/a_perfect_circle/mer_de_noms/the_hollow.md#find-me-feel-me-fill-me-then-cut-me-up-again-vyl-wnanory|Find me, feel me, fill me, then cut me up]]
 &nbsp;
-#### [[notes/i/in_flames/siren_charms/paralyzed.md#breeding-the-hate|Hate]]
-#### [[notes/i/in_flames/siren_charms/paralyzed.md#breeding-the-hate|Me]]
+#### [[notes/i/in_flames/siren_charms/paralyzed.md#breeding-the-hate-vyl-wnanory|Hate]] {#hate-vyl-wnanory}
+#### [[notes/i/in_flames/siren_charms/paralyzed.md#hate-vyl-wnanory|Me]]
 &nbsp;
-#### [[notes/c/crying_vessel/necrozine/suffering.md#please-just-stand-by-my-side|I can't believe in yesterday]]
-#### [[notes/c/crying_vessel/necrozine/suffering.md#please-just-stand-by-my-side|I feel you coming in]]
-#### [[notes/c/crying_vessel/necrozine/suffering.md#please-just-stand-by-my-side|I can't just stand by and watch you]]
+#### [[notes/c/crying_vessel/necrozine/suffering.md#please-just-stand-by-my-side-vyl-wnanory|I can't believe in yesterday]]
+#### [[notes/c/crying_vessel/necrozine/suffering.md#i-cant-believe-in-yesterday-vyl-wnanory|I feel you coming in]]
+#### [[notes/c/crying_vessel/necrozine/suffering.md#i-feel-you-coming-in-vyl-wnanory|I can't just stand by and watch you]]
 &nbsp;
-#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-to-see-you-when-you-come-down|Save yourself as you fall from grace]]
-#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-to-see-you-when-you-come-down|When you come around, I won't be your sympathy]]
+#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-to-see-you-when-you-come-down-vyl-wnanory|Save yourself as you fall from grace]] {#save-yourself-as-you-fall-from-grace-vyl-wnanory}
+#### [[notes/e/emarosa/versus/cliff_notes.md#save-yourself-as-you-fall-from-grace-vyl-wnanory|When you come around, I won't be your sympathy]]
 &nbsp;
 #### Save yourself as you fall from grace
 #### When you come around, I won't be your sympathy
 &nbsp;
-#### [[notes/i/in_flames/siren_charms/paralyzed.md#breeding-the-hate|Hate]]
+#### [[notes/i/in_flames/siren_charms/paralyzed.md#breeding-the-hate-vyl-wnanory|Hate]]

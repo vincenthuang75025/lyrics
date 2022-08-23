@@ -5,45 +5,45 @@ tags:
 - All Our Gods Have Abandoned Us
 ---
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/perception/scissorhands.md#where-is-my-soul-where-are-my-ways-where-is-my-heart|Contaminated, nothing is sacred]]
-#### [[notes/b/breakdown_of_sanity/perception/scissorhands.md#where-is-my-soul-where-are-my-ways-where-is-my-heart|Born and bred on pure hatred]]
-#### [[notes/b/breakdown_of_sanity/perception/scissorhands.md#where-is-my-soul-where-are-my-ways-where-is-my-heart|'Cause they haunt our streets with a phantom fear]]
-#### [[notes/b/breakdown_of_sanity/perception/scissorhands.md#where-is-my-soul-where-are-my-ways-where-is-my-heart|No one is safe, no one is welcome here]]
+#### [[notes/b/breakdown_of_sanity/perception/scissorhands.md#where-is-my-soul-where-are-my-ways-where-is-my-heart-vyl-wnanory|Contaminated, nothing is sacred]] {#contaminated-nothing-is-sacred-vyl-wnanory}
+#### [[notes/b/breakdown_of_sanity/perception/scissorhands.md#contaminated-nothing-is-sacred-vyl-wnanory|Born and bred on pure hatred]]
+#### [[notes/b/breakdown_of_sanity/perception/scissorhands.md#born-and-bred-on-pure-hatred-vyl-wnanory|'Cause they haunt our streets with a phantom fear]]
+#### [[notes/b/breakdown_of_sanity/perception/scissorhands.md#cause-they-haunt-our-streets-with-a-phantom-fear-vyl-wnanory|No one is safe, no one is welcome here]]
 &nbsp;
-#### [[notes/s/system_of_a_down/hypnotize/soldier_side.md#welcome-to-the-soldier-side|No one is welcome here]]
+#### [[notes/s/system_of_a_down/hypnotize/soldier_side.md#welcome-to-the-soldier-side-vyl-wnanory|No one is welcome here]] {#no-one-is-welcome-here-vyl-wnanory}
 &nbsp;
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-days-between-the-past-and-the-pain|Can you taste the poison in the air?]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-days-between-the-past-and-the-pain|I swear it's everywhere, it's everywhere]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-days-between-the-past-and-the-pain|Hidden in plain sight, lost in black and white]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-days-between-the-past-and-the-pain|I'll chase the dying of the light]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-days-between-the-past-and-the-pain-vyl-wnanory|Can you taste the poison in the air?]] {#can-you-taste-the-poison-in-the-air-vyl-wnanory}
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#can-you-taste-the-poison-in-the-air-vyl-wnanory|I swear it's everywhere, it's everywhere]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-swear-its-everywhere-its-everywhere-vyl-wnanory|Hidden in plain sight, lost in black and white]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#hidden-in-plain-sight-lost-in-black-and-white-vyl-wnanory|I'll chase the dying of the light]]
 &nbsp;
-#### [[notes/b/being_as_an_ocean/dear_gd/we_will_never_be_the_same.md#let-the-kingdom-fall-on-this-place|They want the victims to hang their heads in shame]]
-#### [[notes/b/being_as_an_ocean/dear_gd/we_will_never_be_the_same.md#let-the-kingdom-fall-on-this-place|Well fuck them all, we won't play their game]]
-#### [[notes/b/being_as_an_ocean/dear_gd/we_will_never_be_the_same.md#let-the-kingdom-fall-on-this-place|We won't play their game]]
-#### [[notes/b/being_as_an_ocean/dear_gd/we_will_never_be_the_same.md#let-the-kingdom-fall-on-this-place|I've seen through every word the prophets propagate]]
+#### [[notes/b/being_as_an_ocean/dear_gd/we_will_never_be_the_same.md#let-the-kingdom-fall-on-this-place-vyl-wnanory|They want the victims to hang their heads in shame]] {#they-want-the-victims-to-hang-their-heads-in-shame-vyl-wnanory}
+#### [[notes/b/being_as_an_ocean/dear_gd/we_will_never_be_the_same.md#they-want-the-victims-to-hang-their-heads-in-shame-vyl-wnanory|Well fuck them all, we won't play their game]]
+#### [[notes/b/being_as_an_ocean/dear_gd/we_will_never_be_the_same.md#well-fuck-them-all-we-wont-play-their-game-vyl-wnanory|We won't play their game]]
+#### [[notes/b/being_as_an_ocean/dear_gd/we_will_never_be_the_same.md#we-wont-play-their-game-vyl-wnanory|I've seen through every word the prophets propagate]]
 &nbsp;
-#### [[notes/t/tool/ænima/ænema.md#time-to-bring-it-down-again|This is a failed state]]
-#### [[notes/t/tool/ænima/ænema.md#time-to-bring-it-down-again|So read between the lines]]
-#### [[notes/t/tool/ænima/ænema.md#time-to-bring-it-down-again|This is a failed state]]
+#### [[notes/t/tool/ænima/ænema.md#time-to-bring-it-down-again-vyl-wnanory|This is a failed state]] {#this-is-a-failed-state-vyl-wnanory}
+#### [[notes/t/tool/ænima/ænema.md#this-is-a-failed-state-vyl-wnanory|So read between the lines]]
+#### [[notes/t/tool/ænima/ænema.md#so-read-between-the-lines-vyl-wnanory|This is a failed state]]
 &nbsp;
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|No love, no empathy]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|Our fellow man is now our enemy]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|No love, no unity]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|Erase our souls, distort reality]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain-vyl-wnanory|No love, no empathy]] {#no-love-no-empathy-vyl-wnanory}
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#no-love-no-empathy-vyl-wnanory|Our fellow man is now our enemy]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#our-fellow-man-is-now-our-enemy-vyl-wnanory|No love, no unity]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#no-love-no-unity-vyl-wnanory|Erase our souls, distort reality]]
 &nbsp;
 #### Can you taste the poison in the air?
 #### I swear it's everywhere, it's everywhere
 #### Hidden in plain sight, lost in black and white
 #### I'll chase the dying of the light
 &nbsp;
-#### [[notes/e/emery/ten_years/rocknrule.md#this-is-a-waking-up|They will sow the seeds of blind contempt]]
-#### [[notes/e/emery/ten_years/rocknrule.md#this-is-a-waking-up|Then let us bleed until our heart's content]]
-#### [[notes/e/emery/ten_years/rocknrule.md#this-is-a-waking-up|Hidden in plain sight, lost in black and white]]
-#### [[notes/e/emery/ten_years/rocknrule.md#this-is-a-waking-up|I'll chase the dying of the light]]
+#### [[notes/e/emery/ten_years/rocknrule.md#this-is-a-waking-up-vyl-wnanory|They will sow the seeds of blind contempt]] {#they-will-sow-the-seeds-of-blind-contempt-vyl-wnanory}
+#### [[notes/e/emery/ten_years/rocknrule.md#they-will-sow-the-seeds-of-blind-contempt-vyl-wnanory|Then let us bleed until our heart's content]]
+#### [[notes/e/emery/ten_years/rocknrule.md#then-let-us-bleed-until-our-hearts-content-vyl-wnanory|Hidden in plain sight, lost in black and white]]
+#### [[notes/e/emery/ten_years/rocknrule.md#hidden-in-plain-sight-lost-in-black-and-white-vyl-wnanory|I'll chase the dying of the light]]
 &nbsp;
-#### [[notes/a/anthony_rother/popkiller/no_love.md#no-love-no-life|No love, no empathy]]
-#### [[notes/a/anthony_rother/popkiller/no_love.md#no-love-no-life|Our fellow man is now our enemy]]
+#### [[notes/a/anthony_rother/popkiller/no_love.md#no-love-no-life-vyl-wnanory|No love, no empathy]]
+#### [[notes/a/anthony_rother/popkiller/no_love.md#no-love-no-empathy-vyl-wnanory|Our fellow man is now our enemy]]
 &nbsp;
-#### [[notes/b/being_as_an_ocean/dear_gd/the_sea_always_seems_to_put_me_at_ease.md#we-can-no-longer-linger-in-the-shadows-of-our-shame-and-brokenness|No love, no empathy]]
-#### [[notes/b/being_as_an_ocean/dear_gd/the_sea_always_seems_to_put_me_at_ease.md#we-can-no-longer-linger-in-the-shadows-of-our-shame-and-brokenness|No love, no unity]]
-#### [[notes/b/being_as_an_ocean/dear_gd/the_sea_always_seems_to_put_me_at_ease.md#we-can-no-longer-linger-in-the-shadows-of-our-shame-and-brokenness|Our fellow man is now our enemy]]
+#### [[notes/b/being_as_an_ocean/dear_gd/the_sea_always_seems_to_put_me_at_ease.md#we-can-no-longer-linger-in-the-shadows-of-our-shame-and-brokenness-vyl-wnanory|No love, no empathy]]
+#### [[notes/b/being_as_an_ocean/dear_gd/the_sea_always_seems_to_put_me_at_ease.md#no-love-no-empathy-vyl-wnanory|No love, no unity]]
+#### [[notes/b/being_as_an_ocean/dear_gd/the_sea_always_seems_to_put_me_at_ease.md#no-love-no-unity-vyl-wnanory|Our fellow man is now our enemy]]

@@ -5,23 +5,23 @@ tags:
 - Vancouver
 ---
 &nbsp;
-#### [[notes/d/deadmau5/4x412/bad_selection.md#bad-selection|Oh, you've a pretty mouth]]
-#### [[notes/d/deadmau5/4x412/bad_selection.md#bad-selection|Leave your lips to linger on my skin]]
-#### [[notes/d/deadmau5/4x412/bad_selection.md#bad-selection|And kiss me one last time]]
-#### [[notes/d/deadmau5/4x412/bad_selection.md#bad-selection|I will roll off your tongue like a whisper]]
+#### [[notes/d/deadmau5/4x412/bad_selection.md#bad-selection-vyl-wnanory|Oh, you've a pretty mouth]] {#oh-youve-a-pretty-mouth-vyl-wnanory}
+#### [[notes/d/deadmau5/4x412/bad_selection.md#oh-youve-a-pretty-mouth-vyl-wnanory|Leave your lips to linger on my skin]]
+#### [[notes/d/deadmau5/4x412/bad_selection.md#leave-your-lips-to-linger-on-my-skin-vyl-wnanory|And kiss me one last time]]
+#### [[notes/d/deadmau5/4x412/bad_selection.md#and-kiss-me-one-last-time-vyl-wnanory|I will roll off your tongue like a whisper]]
 &nbsp;
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#being-erased|In the winter]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#being-erased|Sleeping in the]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#being-erased|Sutures of the]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#being-erased|City's skin]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#being-erased-vyl-wnanory|In the winter]] {#in-the-winter-vyl-wnanory}
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#in-the-winter-vyl-wnanory|Sleeping in the]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#sleeping-in-the-vyl-wnanory|Sutures of the]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#sutures-of-the-vyl-wnanory|City's skin]]
 &nbsp;
-#### [[notes/a/a_splitsecond/ballistic_statues/drinking_sand.md#another-violent-breed|Make yourself remember me]]
-#### [[notes/a/a_splitsecond/ballistic_statues/drinking_sand.md#another-violent-breed|In cold and concrete]]
+#### [[notes/a/a_splitsecond/ballistic_statues/drinking_sand.md#another-violent-breed-vyl-wnanory|Make yourself remember me]] {#make-yourself-remember-me-vyl-wnanory}
+#### [[notes/a/a_splitsecond/ballistic_statues/drinking_sand.md#make-yourself-remember-me-vyl-wnanory|In cold and concrete]]
 &nbsp;
-#### [[notes/s/stick_to_your_guns/the_hope_division/life_through_western_eyes.md#increase-the-insanity|Oh, when will you realize]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/life_through_western_eyes.md#increase-the-insanity|Oh, the city makes you real?]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/life_through_western_eyes.md#increase-the-insanity|When will you realize]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/life_through_western_eyes.md#increase-the-insanity|Your demons make you real?]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/life_through_western_eyes.md#increase-the-insanity-vyl-wnanory|Oh, when will you realize]] {#oh-when-will-you-realize-vyl-wnanory}
+#### [[notes/s/stick_to_your_guns/the_hope_division/life_through_western_eyes.md#oh-when-will-you-realize-vyl-wnanory|Oh, the city makes you real?]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/life_through_western_eyes.md#oh-the-city-makes-you-real-vyl-wnanory|When will you realize]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/life_through_western_eyes.md#when-will-you-realize-vyl-wnanory|Your demons make you real?]]
 &nbsp;
 #### Oh, you've a pretty mouth
 #### Leave your lips to linger on my skin
@@ -36,44 +36,44 @@ tags:
 #### Make yourself remember me
 #### In cold and concrete
 &nbsp;
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/nobody_not_even_the_rain.md#your-hands-still-catch-the-light-the-right-way|It's the way my hands felt]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/nobody_not_even_the_rain.md#your-hands-still-catch-the-light-the-right-way|Lying still beneath your dress]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/nobody_not_even_the_rain.md#your-hands-still-catch-the-light-the-right-way|It's the way my hands felt]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/nobody_not_even_the_rain.md#your-hands-still-catch-the-light-the-right-way-vyl-wnanory|It's the way my hands felt]] {#its-the-way-my-hands-felt-vyl-wnanory}
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/nobody_not_even_the_rain.md#its-the-way-my-hands-felt-vyl-wnanory|Lying still beneath your dress]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/nobody_not_even_the_rain.md#lying-still-beneath-your-dress-vyl-wnanory|It's the way my hands felt]]
 &nbsp;
-#### [[notes/m/marlon_williams/vampire_again/vampire_again.md#oh-oh|Oh, I am transparent]]
-#### [[notes/m/marlon_williams/vampire_again/vampire_again.md#oh-oh|Oh, I am a greenhouse filled with ghosts]]
-#### [[notes/m/marlon_williams/vampire_again/vampire_again.md#oh-oh|I am transparent, oh]]
+#### [[notes/m/marlon_williams/vampire_again/vampire_again.md#oh-oh-vyl-wnanory|Oh, I am transparent]] {#oh-i-am-transparent-vyl-wnanory}
+#### [[notes/m/marlon_williams/vampire_again/vampire_again.md#oh-i-am-transparent-vyl-wnanory|Oh, I am a greenhouse filled with ghosts]]
+#### [[notes/m/marlon_williams/vampire_again/vampire_again.md#oh-i-am-a-greenhouse-filled-with-ghosts-vyl-wnanory|I am transparent, oh]]
 &nbsp;
-#### [[notes/t/the_last_internationale/we_will_reign/fire.md#oh-oh-|Oh dear god]]
-#### [[notes/t/the_last_internationale/we_will_reign/fire.md#oh-oh-|Oh my god]]
+#### [[notes/t/the_last_internationale/we_will_reign/fire.md#oh-oh-vyl-wnanory|Oh dear god]] {#oh-dear-god-vyl-wnanory}
+#### [[notes/t/the_last_internationale/we_will_reign/fire.md#oh-dear-god-vyl-wnanory|Oh my god]]
 &nbsp;
-#### [[notes/n/nitzer_ebb/as_is/family_man.md#family-man|Whisper secrets]]
-#### [[notes/n/nitzer_ebb/as_is/family_man.md#family-man|Speak in a hushed voice]]
-#### [[notes/n/nitzer_ebb/as_is/family_man.md#family-man|The first thing that you learn]]
-#### [[notes/n/nitzer_ebb/as_is/family_man.md#family-man|Is that you never let them hear you]]
+#### [[notes/n/nitzer_ebb/as_is/family_man.md#family-man-vyl-wnanory|Whisper secrets]] {#whisper-secrets-vyl-wnanory}
+#### [[notes/n/nitzer_ebb/as_is/family_man.md#whisper-secrets-vyl-wnanory|Speak in a hushed voice]]
+#### [[notes/n/nitzer_ebb/as_is/family_man.md#speak-in-a-hushed-voice-vyl-wnanory|The first thing that you learn]]
+#### [[notes/n/nitzer_ebb/as_is/family_man.md#the-first-thing-that-you-learn-vyl-wnanory|Is that you never let them hear you]]
 &nbsp;
-#### [[notes/s/skinny_puppy/remission/glass_houses.md#smash-glass-houses|In a soundproof room]]
-#### [[notes/s/skinny_puppy/remission/glass_houses.md#smash-glass-houses|In a windowless world]]
-#### [[notes/s/skinny_puppy/remission/glass_houses.md#smash-glass-houses|Keep your voice down]]
-#### [[notes/s/skinny_puppy/remission/glass_houses.md#smash-glass-houses|Or dull your words]]
+#### [[notes/s/skinny_puppy/remission/glass_houses.md#smash-glass-houses-vyl-wnanory|In a soundproof room]] {#in-a-soundproof-room-vyl-wnanory}
+#### [[notes/s/skinny_puppy/remission/glass_houses.md#in-a-soundproof-room-vyl-wnanory|In a windowless world]]
+#### [[notes/s/skinny_puppy/remission/glass_houses.md#in-a-windowless-world-vyl-wnanory|Keep your voice down]]
+#### [[notes/s/skinny_puppy/remission/glass_houses.md#keep-your-voice-down-vyl-wnanory|Or dull your words]]
 &nbsp;
-#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#rhythm-bomb|Then put on your bedroom face for him]]
-#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#rhythm-bomb|All pursed lips]]
-#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#rhythm-bomb|And half-closed eyes]]
-#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#rhythm-bomb|With pink-stained skin]]
-#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#rhythm-bomb|Screaming for sleeping hands on downed dresses]]
+#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#rhythm-bomb-vyl-wnanory|Then put on your bedroom face for him]] {#then-put-on-your-bedroom-face-for-him-vyl-wnanory}
+#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#then-put-on-your-bedroom-face-for-him-vyl-wnanory|All pursed lips]]
+#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#all-pursed-lips-vyl-wnanory|And half-closed eyes]]
+#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#and-halfclosed-eyes-vyl-wnanory|With pink-stained skin]]
+#### [[notes/t/the_prodigy/the_day_is_my_enemy/rhythm_bomb.md#with-pinkstained-skin-vyl-wnanory|Screaming for sleeping hands on downed dresses]]
 &nbsp;
-#### [[notes/n/nitzer_ebb/as_is/come_alive.md#we-come-alive|Screaming]]
-#### [[notes/n/nitzer_ebb/as_is/come_alive.md#we-come-alive|For dead legs come alive]]
-#### [[notes/n/nitzer_ebb/as_is/come_alive.md#we-come-alive|For dead legs come alive]]
+#### [[notes/n/nitzer_ebb/as_is/come_alive.md#we-come-alive-vyl-wnanory|Screaming]]
+#### [[notes/n/nitzer_ebb/as_is/come_alive.md#screaming-vyl-wnanory|For dead legs come alive]]
+#### [[notes/n/nitzer_ebb/as_is/come_alive.md#for-dead-legs-come-alive-vyl-wnanory|For dead legs come alive]]
 &nbsp;
-#### [[notes/n/nitzer_ebb/as_is/come_alive.md#we-come-alive|For dead legs come alive]]
+#### [[notes/n/nitzer_ebb/as_is/come_alive.md#we-come-alive-vyl-wnanory|For dead legs come alive]] {#for-dead-legs-come-alive-vyl-wnanory}
 &nbsp;
-#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#there-is-no-god-|Oh dear god]]
-#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#there-is-no-god-|There is no excuse for me]]
+#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#there-is-no-god-vyl-wnanory|Oh dear god]]
+#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#oh-dear-god-vyl-wnanory|There is no excuse for me]]
 &nbsp;
-#### [[notes/z/zanias/unearthed/untamed.md#what-have-you-done|Oh dear god]]
-#### [[notes/z/zanias/unearthed/untamed.md#what-have-you-done|What have I done?]]
+#### [[notes/z/zanias/unearthed/untamed.md#what-have-you-done-vyl-wnanory|Oh dear god]]
+#### [[notes/z/zanias/unearthed/untamed.md#oh-dear-god-vyl-wnanory|What have I done?]]
 &nbsp;
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#sayin-you-love-but-you-dont|I still love you]]
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#sayin-you-love-but-you-dont|But I don't love myself]]
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#sayin-you-love-but-you-dont-vyl-wnanory|I still love you]] {#i-still-love-you-vyl-wnanory}
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#i-still-love-you-vyl-wnanory|But I don't love myself]]

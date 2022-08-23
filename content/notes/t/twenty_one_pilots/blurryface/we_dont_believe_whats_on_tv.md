@@ -5,25 +5,25 @@ tags:
 - Blurryface
 ---
 &nbsp;
-#### [[notes/l/la_dispute/rooms_of_the_house/35.md#to-their-partners-and-kids|We don't believe what's on TV,]]
-#### [[notes/l/la_dispute/rooms_of_the_house/35.md#to-their-partners-and-kids|Because it's what we want to see,]]
-#### [[notes/l/la_dispute/rooms_of_the_house/35.md#to-their-partners-and-kids|And what we want, we know we can't believe,]]
-#### [[notes/l/la_dispute/rooms_of_the_house/35.md#to-their-partners-and-kids|We have all learned to kill our dreams.]]
+#### [[notes/l/la_dispute/rooms_of_the_house/35.md#to-their-partners-and-kids-vyl-wnanory|We don't believe what's on TV,]] {#we-dont-believe-whats-on-tv-vyl-wnanory}
+#### [[notes/l/la_dispute/rooms_of_the_house/35.md#we-dont-believe-whats-on-tv-vyl-wnanory|Because it's what we want to see,]]
+#### [[notes/l/la_dispute/rooms_of_the_house/35.md#because-its-what-we-want-to-see-vyl-wnanory|And what we want, we know we can't believe,]]
+#### [[notes/l/la_dispute/rooms_of_the_house/35.md#and-what-we-want-we-know-we-cant-believe-vyl-wnanory|We have all learned to kill our dreams.]]
 &nbsp;
-#### [[notes/g/green_day/dookie/when_i_come_around.md#no-time-to-search-the-world-around|I need to know that when I fail you'll still be here,]]
-#### [[notes/g/green_day/dookie/when_i_come_around.md#no-time-to-search-the-world-around|'Cause if you stick around I'll sing you pretty sounds,]]
-#### [[notes/g/green_day/dookie/when_i_come_around.md#no-time-to-search-the-world-around|And we'll make money selling your hair.]]
+#### [[notes/g/green_day/dookie/when_i_come_around.md#no-time-to-search-the-world-around-vyl-wnanory|I need to know that when I fail you'll still be here,]] {#i-need-to-know-that-when-i-fail-youll-still-be-here-vyl-wnanory}
+#### [[notes/g/green_day/dookie/when_i_come_around.md#i-need-to-know-that-when-i-fail-youll-still-be-here-vyl-wnanory|'Cause if you stick around I'll sing you pretty sounds,]]
+#### [[notes/g/green_day/dookie/when_i_come_around.md#cause-if-you-stick-around-ill-sing-you-pretty-sounds-vyl-wnanory|And we'll make money selling your hair.]]
 &nbsp;
-#### [[notes/m/massive_attack/mezzanine/group_four.md#i-see-to-bolts-put-keys-to-locks-no-boat-are-rocked-im-free-to-roam|I don't care what's in your hair,]]
-#### [[notes/m/massive_attack/mezzanine/group_four.md#i-see-to-bolts-put-keys-to-locks-no-boat-are-rocked-im-free-to-roam|I just want to know what's on your mind,]]
-#### [[notes/m/massive_attack/mezzanine/group_four.md#i-see-to-bolts-put-keys-to-locks-no-boat-are-rocked-im-free-to-roam|I used to say, "I want to die before I'm old, "]]
-#### [[notes/m/massive_attack/mezzanine/group_four.md#i-see-to-bolts-put-keys-to-locks-no-boat-are-rocked-im-free-to-roam|But because of you I might think twice.]]
+#### [[notes/m/massive_attack/mezzanine/group_four.md#i-see-to-bolts-put-keys-to-locks-no-boat-are-rocked-im-free-to-roam-vyl-wnanory|I don't care what's in your hair,]] {#i-dont-care-whats-in-your-hair-vyl-wnanory}
+#### [[notes/m/massive_attack/mezzanine/group_four.md#i-dont-care-whats-in-your-hair-vyl-wnanory|I just want to know what's on your mind,]]
+#### [[notes/m/massive_attack/mezzanine/group_four.md#i-just-want-to-know-whats-on-your-mind-vyl-wnanory|I used to say, "I want to die before I'm old, "]]
+#### [[notes/m/massive_attack/mezzanine/group_four.md#i-used-to-say-i-want-to-die-before-im-old--vyl-wnanory|But because of you I might think twice.]]
 &nbsp;
-#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#its-a-song-of-thanks-sung-by-a-hack|Alright, second verse]]
-#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#its-a-song-of-thanks-sung-by-a-hack|What if my dream does not happen,]]
-#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#its-a-song-of-thanks-sung-by-a-hack|Would I just change what I've told my friends,]]
-#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#its-a-song-of-thanks-sung-by-a-hack|I don't want to know who I would be,]]
-#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#its-a-song-of-thanks-sung-by-a-hack|When I wake up from a dreamer's sleep.]]
+#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#its-a-song-of-thanks-sung-by-a-hack-vyl-wnanory|Alright, second verse]] {#alright-second-verse-vyl-wnanory}
+#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#alright-second-verse-vyl-wnanory|What if my dream does not happen,]]
+#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#what-if-my-dream-does-not-happen-vyl-wnanory|Would I just change what I've told my friends,]]
+#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#would-i-just-change-what-ive-told-my-friends-vyl-wnanory|I don't want to know who I would be,]]
+#### [[notes/t/touché_amoré/is_survived_by/is_survived_by.md#i-dont-want-to-know-who-i-would-be-vyl-wnanory|When I wake up from a dreamer's sleep.]]
 &nbsp;
 #### I need to know that when I fail you'll still be here,
 #### 'Cause if you stick around I'll sing you pretty sounds,

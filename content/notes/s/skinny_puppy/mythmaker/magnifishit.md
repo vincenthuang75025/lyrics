@@ -5,37 +5,37 @@ tags:
 - Mythmaker
 ---
 &nbsp;
-#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#ready-for-the-trip|I am the liar's nation, oh yeah]]
-#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#ready-for-the-trip|I am the undisputed god, oh yeah]]
-#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#ready-for-the-trip|I am the maggot's muscle, magnet missle, your mother's pisshole]]
-#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#ready-for-the-trip|Magnifishit, master of it all, oh yeah, oh yeah]]
-#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#ready-for-the-trip|Master of it all, oh yeah, oh yeah]]
+#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#ready-for-the-trip-vyl-wnanory|I am the liar's nation, oh yeah]] {#i-am-the-liars-nation-oh-yeah-vyl-wnanory}
+#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#i-am-the-liars-nation-oh-yeah-vyl-wnanory|I am the undisputed god, oh yeah]]
+#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#i-am-the-undisputed-god-oh-yeah-vyl-wnanory|I am the maggot's muscle, magnet missle, your mother's pisshole]]
+#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#i-am-the-maggots-muscle-magnet-missle-your-mothers-pisshole-vyl-wnanory|Magnifishit, master of it all, oh yeah, oh yeah]]
+#### [[notes/a/anthony_rother/metro_boy__catharsis/metro_boy.md#magnifishit-master-of-it-all-oh-yeah-oh-yeah-vyl-wnanory|Master of it all, oh yeah, oh yeah]]
 &nbsp;
-#### [[notes/o/opeth/black_water_park/blackwater_park.md#infecting-the-roots-in-an-instant|I am the answer's question, oh yeah]]
-#### [[notes/o/opeth/black_water_park/blackwater_park.md#infecting-the-roots-in-an-instant|I am the undisputed lie, oh yeah]]
-#### [[notes/o/opeth/black_water_park/blackwater_park.md#infecting-the-roots-in-an-instant|I am the greatest lesson's, righteous person's, raving servant's]]
-#### [[notes/o/opeth/black_water_park/blackwater_park.md#infecting-the-roots-in-an-instant|Makes it worse and altogether bad, oh yeah]]
-#### [[notes/o/opeth/black_water_park/blackwater_park.md#infecting-the-roots-in-an-instant|Bad, oh yeah]]
+#### [[notes/o/opeth/black_water_park/blackwater_park.md#infecting-the-roots-in-an-instant-vyl-wnanory|I am the answer's question, oh yeah]] {#i-am-the-answers-question-oh-yeah-vyl-wnanory}
+#### [[notes/o/opeth/black_water_park/blackwater_park.md#i-am-the-answers-question-oh-yeah-vyl-wnanory|I am the undisputed lie, oh yeah]]
+#### [[notes/o/opeth/black_water_park/blackwater_park.md#i-am-the-undisputed-lie-oh-yeah-vyl-wnanory|I am the greatest lesson's, righteous person's, raving servant's]]
+#### [[notes/o/opeth/black_water_park/blackwater_park.md#i-am-the-greatest-lessons-righteous-persons-raving-servants-vyl-wnanory|Makes it worse and altogether bad, oh yeah]]
+#### [[notes/o/opeth/black_water_park/blackwater_park.md#makes-it-worse-and-altogether-bad-oh-yeah-vyl-wnanory|Bad, oh yeah]]
 &nbsp;
-#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-let-the-wheel-go|I am the infant's nightmare, (I am) oh yeah]]
-#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-let-the-wheel-go|I am the infinite disguise, (I am) oh yeah]]
-#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-let-the-wheel-go|I am the greatest person to hate the small one's only leisure]]
-#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-let-the-wheel-go|Due to scrape and eat behind my lies]]
-#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-let-the-wheel-go|Oh yeah, oh yeah]]
+#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-let-the-wheel-go-vyl-wnanory|I am the infant's nightmare, (I am) oh yeah]] {#i-am-the-infants-nightmare-i-am-oh-yeah-vyl-wnanory}
+#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-am-the-infants-nightmare-i-am-oh-yeah-vyl-wnanory|I am the infinite disguise, (I am) oh yeah]]
+#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-am-the-infinite-disguise-i-am-oh-yeah-vyl-wnanory|I am the greatest person to hate the small one's only leisure]]
+#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#i-am-the-greatest-person-to-hate-the-small-ones-only-leisure-vyl-wnanory|Due to scrape and eat behind my lies]]
+#### [[notes/l/la_dispute/rooms_of_the_house/scenes_from_highways_19812009.md#due-to-scrape-and-eat-behind-my-lies-vyl-wnanory|Oh yeah, oh yeah]]
 &nbsp;
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Master of it all, oh yeah, oh yeah]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Master of it all, oh yeah, oh yeah]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Master of it all, oh yeah, oh yeah]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Master of it all]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah-vyl-wnanory|Master of it all, oh yeah, oh yeah]] {#master-of-it-all-oh-yeah-oh-yeah-vyl-wnanory}
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#master-of-it-all-oh-yeah-oh-yeah-vyl-wnanory|Master of it all, oh yeah, oh yeah]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#master-of-it-all-oh-yeah-oh-yeah-vyl-wnanory|Master of it all, oh yeah, oh yeah]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#master-of-it-all-oh-yeah-oh-yeah-vyl-wnanory|Master of it all]]
 &nbsp;
-#### [[notes/s/skinny_puppy/the_greater_wrong_of_the_right/past_present.md#what-is-real|Home sinking, full of blood]]
-#### [[notes/s/skinny_puppy/the_greater_wrong_of_the_right/past_present.md#what-is-real|What's going on, is something wrong?]]
-#### [[notes/s/skinny_puppy/the_greater_wrong_of_the_right/past_present.md#what-is-real|All the armies fighting in our house]]
+#### [[notes/s/skinny_puppy/the_greater_wrong_of_the_right/past_present.md#what-is-real-vyl-wnanory|Home sinking, full of blood]] {#home-sinking-full-of-blood-vyl-wnanory}
+#### [[notes/s/skinny_puppy/the_greater_wrong_of_the_right/past_present.md#home-sinking-full-of-blood-vyl-wnanory|What's going on, is something wrong?]]
+#### [[notes/s/skinny_puppy/the_greater_wrong_of_the_right/past_present.md#whats-going-on-is-something-wrong-vyl-wnanory|All the armies fighting in our house]]
 &nbsp;
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Oh yeah, oh yeah, master of it all]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Oh yeah, oh yeah, master of it all]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Oh yeah, oh yeah, master of it all]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Oh yeah, oh yeah, master of it all]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah|Oh yeah, oh yeah, master of it all]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#yeah-vyl-wnanory|Oh yeah, oh yeah, master of it all]] {#oh-yeah-oh-yeah-master-of-it-all-vyl-wnanory}
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#oh-yeah-oh-yeah-master-of-it-all-vyl-wnanory|Oh yeah, oh yeah, master of it all]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#oh-yeah-oh-yeah-master-of-it-all-vyl-wnanory|Oh yeah, oh yeah, master of it all]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#oh-yeah-oh-yeah-master-of-it-all-vyl-wnanory|Oh yeah, oh yeah, master of it all]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/sowing_season_yeah.md#oh-yeah-oh-yeah-master-of-it-all-vyl-wnanory|Oh yeah, oh yeah, master of it all]]
 &nbsp;
-#### [[notes/o/opeth/ghost_reveries/beneath_the_mire.md#master|Master of it all]]
+#### [[notes/o/opeth/ghost_reveries/beneath_the_mire.md#master-vyl-wnanory|Master of it all]] {#master-of-it-all-vyl-wnanory}

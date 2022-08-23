@@ -5,7 +5,7 @@ tags:
 - Hold Your Colour
 ---
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/gematria_the_killing_name.md#down-|Tearing down the wall]]
+#### [[notes/s/slipknot/all_hope_is_gone/gematria_the_killing_name.md#down-vyl-wnanory|Tearing down the wall]] {#tearing-down-the-wall-vyl-wnanory}
 &nbsp;
 #### Tearing down the wall
 &nbsp;

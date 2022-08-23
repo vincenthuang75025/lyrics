@@ -5,47 +5,47 @@ tags:
 - Open Day at the Hate Fest
 ---
 &nbsp;
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#well-i-love-you-so-much-never-again|You want to hurt me]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#well-i-love-you-so-much-never-again|To make me feel what you feel]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#well-i-love-you-so-much-never-again|You want to tear me]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#well-i-love-you-so-much-never-again|Till I bleed at the seam]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#well-i-love-you-so-much-never-again-vyl-wnanory|You want to hurt me]] {#you-want-to-hurt-me-vyl-wnanory}
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#you-want-to-hurt-me-vyl-wnanory|To make me feel what you feel]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#to-make-me-feel-what-you-feel-vyl-wnanory|You want to tear me]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#you-want-to-tear-me-vyl-wnanory|Till I bleed at the seam]]
 &nbsp;
-#### [[notes/t/the_used/the_used/noise_and_kisses.md#share-with-me|You're so sick of what you live under]]
-#### [[notes/t/the_used/the_used/noise_and_kisses.md#share-with-me|You take it to extremes]]
-#### [[notes/t/the_used/the_used/noise_and_kisses.md#share-with-me|So sick of what you waste]]
-#### [[notes/t/the_used/the_used/noise_and_kisses.md#share-with-me|That you can't even dream]]
+#### [[notes/t/the_used/the_used/noise_and_kisses.md#share-with-me-vyl-wnanory|You're so sick of what you live under]] {#youre-so-sick-of-what-you-live-under-vyl-wnanory}
+#### [[notes/t/the_used/the_used/noise_and_kisses.md#youre-so-sick-of-what-you-live-under-vyl-wnanory|You take it to extremes]]
+#### [[notes/t/the_used/the_used/noise_and_kisses.md#you-take-it-to-extremes-vyl-wnanory|So sick of what you waste]]
+#### [[notes/t/the_used/the_used/noise_and_kisses.md#so-sick-of-what-you-waste-vyl-wnanory|That you can't even dream]]
 &nbsp;
-#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy|I'm not your slave]]
-#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy|You're not my master]]
-#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy|But I know it's the picture]]
-#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy|Your after]]
+#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy-vyl-wnanory|I'm not your slave]] {#im-not-your-slave-vyl-wnanory}
+#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#im-not-your-slave-vyl-wnanory|You're not my master]]
+#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#youre-not-my-master-vyl-wnanory|But I know it's the picture]]
+#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#but-i-know-its-the-picture-vyl-wnanory|Your after]]
 &nbsp;
 #### I'm not your slave
 #### You're not my master
 #### But I know it's the picture
 #### Your after
 &nbsp;
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#ill-never-have-to-buy-adjacent-plots-of-earth|You want to trap me]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#ill-never-have-to-buy-adjacent-plots-of-earth|Like a fly on the wall]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#ill-never-have-to-buy-adjacent-plots-of-earth|Then you call me useless]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#ill-never-have-to-buy-adjacent-plots-of-earth|For finding the cause]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#ill-never-have-to-buy-adjacent-plots-of-earth-vyl-wnanory|You want to trap me]] {#you-want-to-trap-me-vyl-wnanory}
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#you-want-to-trap-me-vyl-wnanory|Like a fly on the wall]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#like-a-fly-on-the-wall-vyl-wnanory|Then you call me useless]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/limousine.md#then-you-call-me-useless-vyl-wnanory|For finding the cause]]
 &nbsp;
-#### [[notes/s/sonic_youth/hits_are_for_squares/kool_thing.md#yeah|You're so tired of all you left hidden]]
-#### [[notes/s/sonic_youth/hits_are_for_squares/kool_thing.md#yeah|It falls into obscene]]
-#### [[notes/s/sonic_youth/hits_are_for_squares/kool_thing.md#yeah|So tired of all the haste]]
-#### [[notes/s/sonic_youth/hits_are_for_squares/kool_thing.md#yeah|And what you could've been]]
+#### [[notes/s/sonic_youth/hits_are_for_squares/kool_thing.md#yeah-vyl-wnanory|You're so tired of all you left hidden]] {#youre-so-tired-of-all-you-left-hidden-vyl-wnanory}
+#### [[notes/s/sonic_youth/hits_are_for_squares/kool_thing.md#youre-so-tired-of-all-you-left-hidden-vyl-wnanory|It falls into obscene]]
+#### [[notes/s/sonic_youth/hits_are_for_squares/kool_thing.md#it-falls-into-obscene-vyl-wnanory|So tired of all the haste]]
+#### [[notes/s/sonic_youth/hits_are_for_squares/kool_thing.md#so-tired-of-all-the-haste-vyl-wnanory|And what you could've been]]
 &nbsp;
-#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy|I'm not your slave]]
-#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy|You're not my master]]
-#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy|But I know it's the picture]]
-#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy|You're after]]
+#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#i-know-what-you-buy-vyl-wnanory|I'm not your slave]]
+#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#im-not-your-slave-vyl-wnanory|You're not my master]]
+#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#youre-not-my-master-vyl-wnanory|But I know it's the picture]]
+#### [[notes/n/nitzer_ebb/showtime/getting_closer.md#but-i-know-its-the-picture-vyl-wnanory|You're after]]
 &nbsp;
 #### I'm not your slave
 #### You're not my master
 #### But I know it's the picture
 #### You're after
 &nbsp;
-#### [[notes/p/perturbator/dangerous_days/hard_wired_feat_memory_ghosts_isabella_goloversic.md#and-you-know-what-i-need-now|This is all I need to know]]
+#### [[notes/p/perturbator/dangerous_days/hard_wired_feat_memory_ghosts_isabella_goloversic.md#and-you-know-what-i-need-now-vyl-wnanory|This is all I need to know]] {#this-is-all-i-need-to-know-vyl-wnanory}
 &nbsp;
 #### This is all I need to know
 &nbsp;
@@ -69,10 +69,10 @@ tags:
 #### So tired of all the haste
 #### And what you could've been
 &nbsp;
-#### [[notes/z/zanias/unearthed/unbound.md#couldve-been-stronger|What you could've been]]
+#### [[notes/z/zanias/unearthed/unbound.md#couldve-been-stronger-vyl-wnanory|What you could've been]] {#what-you-couldve-been-vyl-wnanory}
 &nbsp;
 #### What you could've been
 &nbsp;
-#### [[notes/d/disturbed/believe/remember.md#into-me-|Falls into obscene]]
+#### [[notes/d/disturbed/believe/remember.md#into-me-vyl-wnanory|Falls into obscene]] {#falls-into-obscene-vyl-wnanory}
 &nbsp;
 #### Falls into obscene

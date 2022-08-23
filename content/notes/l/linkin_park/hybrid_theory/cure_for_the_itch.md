@@ -5,13 +5,13 @@ tags:
 - Hybrid Theory
 ---
 &nbsp;
-#### [[notes/s/stick_to_your_guns/diamond/we_still_believe.md#im-sick-and-tired-of-all-this-giving-up|Folks, we have a very special guest for you tonight]]
-#### [[notes/s/stick_to_your_guns/diamond/we_still_believe.md#im-sick-and-tired-of-all-this-giving-up|I'd like to introduce Mr. Hahn]]
+#### [[notes/s/stick_to_your_guns/diamond/we_still_believe.md#im-sick-and-tired-of-all-this-giving-up-vyl-wnanory|Folks, we have a very special guest for you tonight]] {#folks-we-have-a-very-special-guest-for-you-tonight-vyl-wnanory}
+#### [[notes/s/stick_to_your_guns/diamond/we_still_believe.md#folks-we-have-a-very-special-guest-for-you-tonight-vyl-wnanory|I'd like to introduce Mr. Hahn]]
 &nbsp;
-#### [[notes/b/bring_me_the_horizon/throne/happy_song.md#spirit-spirit-lets-hear-it|Let's hear it for the great Mr. Hahn!]]
+#### [[notes/b/bring_me_the_horizon/throne/happy_song.md#spirit-spirit-lets-hear-it-vyl-wnanory|Let's hear it for the great Mr. Hahn!]] {#lets-hear-it-for-the-great-mr-hahn-vyl-wnanory}
 &nbsp;
-#### [[notes/e/every_time_i_die/gutter_phenomenon/the_new_black.md#dont-you-know-who-i-am|And now for a lesson in rhythm management]]
-#### [[notes/e/every_time_i_die/gutter_phenomenon/the_new_black.md#dont-you-know-who-i-am|Let's begin]]
+#### [[notes/e/every_time_i_die/gutter_phenomenon/the_new_black.md#dont-you-know-who-i-am-vyl-wnanory|And now for a lesson in rhythm management]] {#and-now-for-a-lesson-in-rhythm-management-vyl-wnanory}
+#### [[notes/e/every_time_i_die/gutter_phenomenon/the_new_black.md#and-now-for-a-lesson-in-rhythm-management-vyl-wnanory|Let's begin]]
 &nbsp;
-#### [[notes/p/pf_project/trainspotting_2/choose_life.md#i-chose-something-else|Alright now, wasn't that fun?]]
-#### [[notes/p/pf_project/trainspotting_2/choose_life.md#i-chose-something-else|Let's try something else]]
+#### [[notes/p/pf_project/trainspotting_2/choose_life.md#i-chose-something-else-vyl-wnanory|Alright now, wasn't that fun?]] {#alright-now-wasnt-that-fun-vyl-wnanory}
+#### [[notes/p/pf_project/trainspotting_2/choose_life.md#alright-now-wasnt-that-fun-vyl-wnanory|Let's try something else]]

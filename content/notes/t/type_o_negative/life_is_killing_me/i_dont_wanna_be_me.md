@@ -5,33 +5,33 @@ tags:
 - Life Is Killing Me
 ---
 &nbsp;
-#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-|I don't wanna be]]
-#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-|I don't wanna be me]]
-#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-|I don't wanna be]]
-#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-|Me anymore]]
+#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-vyl-wnanory|I don't wanna be]] {#i-dont-wanna-be-vyl-wnanory}
+#### [[notes/p/portishead/dummy/glory_box.md#i-dont-wanna-be-vyl-wnanory|I don't wanna be me]]
+#### [[notes/p/portishead/dummy/glory_box.md#i-dont-wanna-be-me-vyl-wnanory|I don't wanna be]]
+#### [[notes/p/portishead/dummy/glory_box.md#i-dont-wanna-be-vyl-wnanory|Me anymore]]
 &nbsp;
-#### [[notes/k/kevin_morby/harlem_river/harlem_river.md#harlem-river-talk-to-me|Ever throwing at his home]]
-#### [[notes/k/kevin_morby/harlem_river/harlem_river.md#harlem-river-talk-to-me|Two glass houses, twenty stones]]
-#### [[notes/k/kevin_morby/harlem_river/harlem_river.md#harlem-river-talk-to-me|Fourteen yellow, six are blue]]
-#### [[notes/k/kevin_morby/harlem_river/harlem_river.md#harlem-river-talk-to-me|Could it be worse? Quite doubtful.]]
-&nbsp;
-#### I don't wanna be
-#### I don't wanna be me
-#### I don't wanna be
-#### Me anymore
+#### [[notes/k/kevin_morby/harlem_river/harlem_river.md#harlem-river-talk-to-me-vyl-wnanory|Ever throwing at his home]] {#ever-throwing-at-his-home-vyl-wnanory}
+#### [[notes/k/kevin_morby/harlem_river/harlem_river.md#ever-throwing-at-his-home-vyl-wnanory|Two glass houses, twenty stones]]
+#### [[notes/k/kevin_morby/harlem_river/harlem_river.md#two-glass-houses-twenty-stones-vyl-wnanory|Fourteen yellow, six are blue]]
+#### [[notes/k/kevin_morby/harlem_river/harlem_river.md#fourteen-yellow-six-are-blue-vyl-wnanory|Could it be worse? Quite doubtful.]]
 &nbsp;
 #### I don't wanna be
 #### I don't wanna be me
 #### I don't wanna be
 #### Me anymore
 &nbsp;
-#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_constantly_thank_god_for_esteban.md#strike-up-the-band|1, 2]]
-#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_constantly_thank_god_for_esteban.md#strike-up-the-band|1-2-3-4]]
+#### I don't wanna be
+#### I don't wanna be me
+#### I don't wanna be
+#### Me anymore
 &nbsp;
-#### [[notes/b/billy_idol/rebel_yell/flesh_for_fantasy.md#sing-it|Two steps forward, three steps back]]
-#### [[notes/b/billy_idol/rebel_yell/flesh_for_fantasy.md#sing-it|Without warning, heart attack]]
-#### [[notes/b/billy_idol/rebel_yell/flesh_for_fantasy.md#sing-it|He fell asleep in the snow]]
-#### [[notes/b/billy_idol/rebel_yell/flesh_for_fantasy.md#sing-it|Never woke up, died alone]]
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_constantly_thank_god_for_esteban.md#strike-up-the-band-vyl-wnanory|1, 2]] {#1-2-vyl-wnanory}
+#### [[notes/p/panic_at_the_disco/a_fever_you_cant_sweat_out/i_constantly_thank_god_for_esteban.md#1-2-vyl-wnanory|1-2-3-4]]
+&nbsp;
+#### [[notes/b/billy_idol/rebel_yell/flesh_for_fantasy.md#sing-it-vyl-wnanory|Two steps forward, three steps back]] {#two-steps-forward-three-steps-back-vyl-wnanory}
+#### [[notes/b/billy_idol/rebel_yell/flesh_for_fantasy.md#two-steps-forward-three-steps-back-vyl-wnanory|Without warning, heart attack]]
+#### [[notes/b/billy_idol/rebel_yell/flesh_for_fantasy.md#without-warning-heart-attack-vyl-wnanory|He fell asleep in the snow]]
+#### [[notes/b/billy_idol/rebel_yell/flesh_for_fantasy.md#he-fell-asleep-in-the-snow-vyl-wnanory|Never woke up, died alone]]
 &nbsp;
 #### I don't wanna be
 #### I don't wanna be me
@@ -46,10 +46,10 @@ tags:
 #### 1, 2
 #### 1-2-3-4
 &nbsp;
-#### [[notes/b/boy_harsher/yr_body_is_nothing/a_realness.md#please-dont-go|Please don't dress in black]]
-#### [[notes/b/boy_harsher/yr_body_is_nothing/a_realness.md#please-dont-go|When you're at his wake]]
-#### [[notes/b/boy_harsher/yr_body_is_nothing/a_realness.md#please-dont-go|Don't go there to mourn]]
-#### [[notes/b/boy_harsher/yr_body_is_nothing/a_realness.md#please-dont-go|But to celebrate]]
+#### [[notes/b/boy_harsher/yr_body_is_nothing/a_realness.md#please-dont-go-vyl-wnanory|Please don't dress in black]] {#please-dont-dress-in-black-vyl-wnanory}
+#### [[notes/b/boy_harsher/yr_body_is_nothing/a_realness.md#please-dont-dress-in-black-vyl-wnanory|When you're at his wake]]
+#### [[notes/b/boy_harsher/yr_body_is_nothing/a_realness.md#when-youre-at-his-wake-vyl-wnanory|Don't go there to mourn]]
+#### [[notes/b/boy_harsher/yr_body_is_nothing/a_realness.md#dont-go-there-to-mourn-vyl-wnanory|But to celebrate]]
 &nbsp;
 #### Please don't dress in black
 #### When you're at his wake
@@ -69,10 +69,10 @@ tags:
 #### 1, 2
 #### 1-2-3-4
 &nbsp;
-#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-|I don't wanna be (I don't wanna be)]]
-#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-|I don't wanna be me (I don't wanna be me)]]
-#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-|I don't wanna be (I don't wanna be)]]
-#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-|Me anymore]]
+#### [[notes/p/portishead/dummy/glory_box.md#its-all-i-wanna-be-vyl-wnanory|I don't wanna be (I don't wanna be)]] {#i-dont-wanna-be-i-dont-wanna-be-vyl-wnanory}
+#### [[notes/p/portishead/dummy/glory_box.md#i-dont-wanna-be-i-dont-wanna-be-vyl-wnanory|I don't wanna be me (I don't wanna be me)]]
+#### [[notes/p/portishead/dummy/glory_box.md#i-dont-wanna-be-me-i-dont-wanna-be-me-vyl-wnanory|I don't wanna be (I don't wanna be)]]
+#### [[notes/p/portishead/dummy/glory_box.md#i-dont-wanna-be-i-dont-wanna-be-vyl-wnanory|Me anymore]]
 &nbsp;
 #### I don't wanna be (I don't wanna be)
 #### I don't wanna be me (I don't wanna be me)

@@ -5,28 +5,28 @@ tags:
 - Electro Pop
 ---
 &nbsp;
-#### [[notes/b/bryan_adams/reckless/run_to_you.md#i-know-her-love-is-true|In the sea of love]]
-#### [[notes/b/bryan_adams/reckless/run_to_you.md#i-know-her-love-is-true|I know secrets]]
-#### [[notes/b/bryan_adams/reckless/run_to_you.md#i-know-her-love-is-true|The lie is a lie]]
-#### [[notes/b/bryan_adams/reckless/run_to_you.md#i-know-her-love-is-true|The true is the truth]]
+#### [[notes/b/bryan_adams/reckless/run_to_you.md#i-know-her-love-is-true-vyl-wnanory|In the sea of love]] {#in-the-sea-of-love-vyl-wnanory}
+#### [[notes/b/bryan_adams/reckless/run_to_you.md#in-the-sea-of-love-vyl-wnanory|I know secrets]]
+#### [[notes/b/bryan_adams/reckless/run_to_you.md#i-know-secrets-vyl-wnanory|The lie is a lie]]
+#### [[notes/b/bryan_adams/reckless/run_to_you.md#the-lie-is-a-lie-vyl-wnanory|The true is the truth]]
 &nbsp;
-#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#burning-house-of-love|In the house of love]]
-#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#burning-house-of-love|Life is life]]
-#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#burning-house-of-love|There's no guilty]]
-#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#burning-house-of-love|Because of the truth]]
+#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#burning-house-of-love-vyl-wnanory|In the house of love]] {#in-the-house-of-love-vyl-wnanory}
+#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#in-the-house-of-love-vyl-wnanory|Life is life]]
+#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#life-is-life-vyl-wnanory|There's no guilty]]
+#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#theres-no-guilty-vyl-wnanory|Because of the truth]]
 &nbsp;
-#### [[notes/g/gary_newman/isolate/time_to_die.md#welcome-home|In the time of love]]
-#### [[notes/g/gary_newman/isolate/time_to_die.md#welcome-home|Time stand still]]
-#### [[notes/g/gary_newman/isolate/time_to_die.md#welcome-home|Moment of feelings]]
-#### [[notes/g/gary_newman/isolate/time_to_die.md#welcome-home|I want to be real]]
+#### [[notes/g/gary_newman/isolate/time_to_die.md#welcome-home-vyl-wnanory|In the time of love]] {#in-the-time-of-love-vyl-wnanory}
+#### [[notes/g/gary_newman/isolate/time_to_die.md#in-the-time-of-love-vyl-wnanory|Time stand still]]
+#### [[notes/g/gary_newman/isolate/time_to_die.md#time-stand-still-vyl-wnanory|Moment of feelings]]
+#### [[notes/g/gary_newman/isolate/time_to_die.md#moment-of-feelings-vyl-wnanory|I want to be real]]
 &nbsp;
-#### [[notes/m/massive_attack/mezzanine/angel.md#you--are-my-angel|In the name of love]]
-#### [[notes/m/massive_attack/mezzanine/angel.md#you--are-my-angel|I will survive]]
-#### [[notes/m/massive_attack/mezzanine/angel.md#you--are-my-angel|It keeps me alive]]
-#### [[notes/m/massive_attack/mezzanine/angel.md#you--are-my-angel|I love you]]
+#### [[notes/m/massive_attack/mezzanine/angel.md#you--are-my-angel-vyl-wnanory|In the name of love]] {#in-the-name-of-love-vyl-wnanory}
+#### [[notes/m/massive_attack/mezzanine/angel.md#in-the-name-of-love-vyl-wnanory|I will survive]]
+#### [[notes/m/massive_attack/mezzanine/angel.md#i-will-survive-vyl-wnanory|It keeps me alive]]
+#### [[notes/m/massive_attack/mezzanine/angel.md#it-keeps-me-alive-vyl-wnanory|I love you]]
 &nbsp;
-#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love|(In the sea of love)]]
-#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love|(In the sea of love)]]
+#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love-vyl-wnanory|(In the sea of love)]]
+#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#in-the-sea-of-love-vyl-wnanory|(In the sea of love)]]
 &nbsp;
 #### In the sea of love
 #### I know secrets
@@ -48,10 +48,10 @@ tags:
 #### It keeps me alive
 #### I love you
 &nbsp;
-#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love|(In the sea of love)]]
-#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love|(In the sea of love)]]
-#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love|(In the sea of love)]]
-#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love|(In the sea of love)]]
+#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love-vyl-wnanory|(In the sea of love)]]
+#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#in-the-sea-of-love-vyl-wnanory|(In the sea of love)]]
+#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#in-the-sea-of-love-vyl-wnanory|(In the sea of love)]]
+#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#in-the-sea-of-love-vyl-wnanory|(In the sea of love)]]
 &nbsp;
 #### (In the sea of love)
 #### (In the sea of love)

@@ -5,43 +5,43 @@ tags:
 - Death Of A Bachelor
 ---
 &nbsp;
-#### [[notes/m/massive_attack/heligoland/splitting_the_atom.md#incandescent-light-at-doors|You got two black eyes from loving too hard]]
-#### [[notes/m/massive_attack/heligoland/splitting_the_atom.md#incandescent-light-at-doors|And a black car that matches your blackest soul]]
-#### [[notes/m/massive_attack/heligoland/splitting_the_atom.md#incandescent-light-at-doors|I would change ya, oh]]
-#### [[notes/m/massive_attack/heligoland/splitting_the_atom.md#incandescent-light-at-doors|Wouldn't ever try to make you leave, no-oh]]
+#### [[notes/m/massive_attack/heligoland/splitting_the_atom.md#incandescent-light-at-doors-vyl-wnanory|You got two black eyes from loving too hard]] {#you-got-two-black-eyes-from-loving-too-hard-vyl-wnanory}
+#### [[notes/m/massive_attack/heligoland/splitting_the_atom.md#you-got-two-black-eyes-from-loving-too-hard-vyl-wnanory|And a black car that matches your blackest soul]]
+#### [[notes/m/massive_attack/heligoland/splitting_the_atom.md#and-a-black-car-that-matches-your-blackest-soul-vyl-wnanory|I would change ya, oh]]
+#### [[notes/m/massive_attack/heligoland/splitting_the_atom.md#i-would-change-ya-oh-vyl-wnanory|Wouldn't ever try to make you leave, no-oh]]
 &nbsp;
-#### [[notes/o/opeth/black_water_park/harvest.md#into-the-orchard-i-walk-peering-way-past-the-gate|Oh the neon coast was your sign]]
-#### [[notes/o/opeth/black_water_park/harvest.md#into-the-orchard-i-walk-peering-way-past-the-gate|And the Midwest wind with Pisces rising]]
-#### [[notes/o/opeth/black_water_park/harvest.md#into-the-orchard-i-walk-peering-way-past-the-gate|Wouldn't change ya, oh]]
-#### [[notes/o/opeth/black_water_park/harvest.md#into-the-orchard-i-walk-peering-way-past-the-gate|Wouldn't ever try to make you leave, no-oh]]
+#### [[notes/o/opeth/black_water_park/harvest.md#into-the-orchard-i-walk-peering-way-past-the-gate-vyl-wnanory|Oh the neon coast was your sign]] {#oh-the-neon-coast-was-your-sign-vyl-wnanory}
+#### [[notes/o/opeth/black_water_park/harvest.md#oh-the-neon-coast-was-your-sign-vyl-wnanory|And the Midwest wind with Pisces rising]]
+#### [[notes/o/opeth/black_water_park/harvest.md#and-the-midwest-wind-with-pisces-rising-vyl-wnanory|Wouldn't change ya, oh]]
+#### [[notes/o/opeth/black_water_park/harvest.md#wouldnt-change-ya-oh-vyl-wnanory|Wouldn't ever try to make you leave, no-oh]]
 &nbsp;
-#### [[notes/l/la_dispute/vancouver/the_surgeon_and_the_scientist.md#these-scars-will-fade-away-but-never-disappear-my-dear|Static palms melt your vibe]]
-#### [[notes/l/la_dispute/vancouver/the_surgeon_and_the_scientist.md#these-scars-will-fade-away-but-never-disappear-my-dear|Midnight whisperings]]
+#### [[notes/l/la_dispute/vancouver/the_surgeon_and_the_scientist.md#these-scars-will-fade-away-but-never-disappear-my-dear-vyl-wnanory|Static palms melt your vibe]] {#static-palms-melt-your-vibe-vyl-wnanory}
+#### [[notes/l/la_dispute/vancouver/the_surgeon_and_the_scientist.md#static-palms-melt-your-vibe-vyl-wnanory|Midnight whisperings]]
 &nbsp;
-#### [[notes/r/rise_against/appeal_to_reason/historia_calamitatum.md#when-it-rains-it-pours|The black magic on Mulholland Drive]]
-#### [[notes/r/rise_against/appeal_to_reason/historia_calamitatum.md#when-it-rains-it-pours|Swimming pools under desert skies]]
-#### [[notes/r/rise_against/appeal_to_reason/historia_calamitatum.md#when-it-rains-it-pours|Drinking white wine in the blushing light]]
-#### [[notes/r/rise_against/appeal_to_reason/historia_calamitatum.md#when-it-rains-it-pours|Just another LA Devotee]]
+#### [[notes/r/rise_against/appeal_to_reason/historia_calamitatum.md#when-it-rains-it-pours-vyl-wnanory|The black magic on Mulholland Drive]] {#the-black-magic-on-mulholland-drive-vyl-wnanory}
+#### [[notes/r/rise_against/appeal_to_reason/historia_calamitatum.md#the-black-magic-on-mulholland-drive-vyl-wnanory|Swimming pools under desert skies]]
+#### [[notes/r/rise_against/appeal_to_reason/historia_calamitatum.md#swimming-pools-under-desert-skies-vyl-wnanory|Drinking white wine in the blushing light]]
+#### [[notes/r/rise_against/appeal_to_reason/historia_calamitatum.md#drinking-white-wine-in-the-blushing-light-vyl-wnanory|Just another LA Devotee]]
 &nbsp;
-#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die|Sunsets on the evil eye]]
-#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die|Invisible to the Hollywood shrine]]
-#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die|Always on the hunt for a little more time]]
-#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die|Just another LA Devotee]]
+#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die-vyl-wnanory|Sunsets on the evil eye]] {#sunsets-on-the-evil-eye-vyl-wnanory}
+#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#sunsets-on-the-evil-eye-vyl-wnanory|Invisible to the Hollywood shrine]]
+#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#invisible-to-the-hollywood-shrine-vyl-wnanory|Always on the hunt for a little more time]]
+#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#always-on-the-hunt-for-a-little-more-time-vyl-wnanory|Just another LA Devotee]]
 &nbsp;
-#### [[notes/c/cynthia_harrell/metal_gear_solid_3__snake_eater_original_soundtrack/snake_eater.md#someday-you-go-through-the-rain|Just another, just another, uh-oh]]
-#### [[notes/c/cynthia_harrell/metal_gear_solid_3__snake_eater_original_soundtrack/snake_eater.md#someday-you-go-through-the-rain|Just another, just another, uh-oh]]
-#### [[notes/c/cynthia_harrell/metal_gear_solid_3__snake_eater_original_soundtrack/snake_eater.md#someday-you-go-through-the-rain|Just another, just another, uh-oh]]
-#### [[notes/c/cynthia_harrell/metal_gear_solid_3__snake_eater_original_soundtrack/snake_eater.md#someday-you-go-through-the-rain|Just another LA Devotee]]
+#### [[notes/c/cynthia_harrell/metal_gear_solid_3__snake_eater_original_soundtrack/snake_eater.md#someday-you-go-through-the-rain-vyl-wnanory|Just another, just another, uh-oh]] {#just-another-just-another-uhoh-vyl-wnanory}
+#### [[notes/c/cynthia_harrell/metal_gear_solid_3__snake_eater_original_soundtrack/snake_eater.md#just-another-just-another-uhoh-vyl-wnanory|Just another, just another, uh-oh]]
+#### [[notes/c/cynthia_harrell/metal_gear_solid_3__snake_eater_original_soundtrack/snake_eater.md#just-another-just-another-uhoh-vyl-wnanory|Just another, just another, uh-oh]]
+#### [[notes/c/cynthia_harrell/metal_gear_solid_3__snake_eater_original_soundtrack/snake_eater.md#just-another-just-another-uhoh-vyl-wnanory|Just another LA Devotee]]
 &nbsp;
-#### [[notes/n/new_model_army/impurity/lust_for_power.md#across-the-flatlands-we-came-out-of-nowhere-special|You got bleached out eyes from the valley sand]]
-#### [[notes/n/new_model_army/impurity/lust_for_power.md#across-the-flatlands-we-came-out-of-nowhere-special|And the black tar palms keep weeping your name]]
-#### [[notes/n/new_model_army/impurity/lust_for_power.md#across-the-flatlands-we-came-out-of-nowhere-special|I couldn't change ya, oh-oh]]
-#### [[notes/n/new_model_army/impurity/lust_for_power.md#across-the-flatlands-we-came-out-of-nowhere-special|Couldn't ever try to make you see, oh-oh]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#across-the-flatlands-we-came-out-of-nowhere-special-vyl-wnanory|You got bleached out eyes from the valley sand]] {#you-got-bleached-out-eyes-from-the-valley-sand-vyl-wnanory}
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#you-got-bleached-out-eyes-from-the-valley-sand-vyl-wnanory|And the black tar palms keep weeping your name]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#and-the-black-tar-palms-keep-weeping-your-name-vyl-wnanory|I couldn't change ya, oh-oh]]
+#### [[notes/n/new_model_army/impurity/lust_for_power.md#i-couldnt-change-ya-ohoh-vyl-wnanory|Couldn't ever try to make you see, oh-oh]]
 &nbsp;
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river|The high rise lights read your rights]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river|And a downtown storm with Aries rising]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river|Couldn't change you, oh-oh]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river|Couldn't ever try to make you leave, no-oh]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#you-sold-us-all-down-the-river-vyl-wnanory|The high rise lights read your rights]] {#the-high-rise-lights-read-your-rights-vyl-wnanory}
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#the-high-rise-lights-read-your-rights-vyl-wnanory|And a downtown storm with Aries rising]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#and-a-downtown-storm-with-aries-rising-vyl-wnanory|Couldn't change you, oh-oh]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/gravedigger.md#couldnt-change-you-ohoh-vyl-wnanory|Couldn't ever try to make you leave, no-oh]]
 &nbsp;
 #### Static palms melt your vibe
 #### Midnight whisperings
@@ -61,10 +61,10 @@ tags:
 #### Just another, just another, uh-oh
 #### Just another LA Devotee
 &nbsp;
-#### [[notes/b/belinda_carlisle/heaven_on_earth/circle_in_the_sand.md#circle-in-the-sand-round-and-round|(LA Devotee)]]
-#### [[notes/b/belinda_carlisle/heaven_on_earth/circle_in_the_sand.md#circle-in-the-sand-round-and-round|(LA Devotee)]]
-#### [[notes/b/belinda_carlisle/heaven_on_earth/circle_in_the_sand.md#circle-in-the-sand-round-and-round|(LA Devotee)]]
-#### [[notes/b/belinda_carlisle/heaven_on_earth/circle_in_the_sand.md#circle-in-the-sand-round-and-round|(LA Devotee)]]
+#### [[notes/b/belinda_carlisle/heaven_on_earth/circle_in_the_sand.md#circle-in-the-sand-round-and-round-vyl-wnanory|(LA Devotee)]] {#la-devotee-vyl-wnanory}
+#### [[notes/b/belinda_carlisle/heaven_on_earth/circle_in_the_sand.md#la-devotee-vyl-wnanory|(LA Devotee)]]
+#### [[notes/b/belinda_carlisle/heaven_on_earth/circle_in_the_sand.md#la-devotee-vyl-wnanory|(LA Devotee)]]
+#### [[notes/b/belinda_carlisle/heaven_on_earth/circle_in_the_sand.md#la-devotee-vyl-wnanory|(LA Devotee)]]
 &nbsp;
 #### The black magic on Mulholland Drive
 #### Swimming pools under desert skies

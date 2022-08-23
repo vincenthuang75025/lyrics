@@ -5,44 +5,44 @@ tags:
 - Empty Days & Sleepless Nights
 ---
 &nbsp;
-#### [[notes/b/bring_me_the_horizon/sempiternal/go_to_hell_for_heavens_sake.md#no-one-wants-to-hear-you|Let's talk about the old days]]
-#### [[notes/b/bring_me_the_horizon/sempiternal/go_to_hell_for_heavens_sake.md#no-one-wants-to-hear-you|Let's talk about your friends]]
-#### [[notes/b/bring_me_the_horizon/sempiternal/go_to_hell_for_heavens_sake.md#no-one-wants-to-hear-you|Let's talk about the summer]]
-#### [[notes/b/bring_me_the_horizon/sempiternal/go_to_hell_for_heavens_sake.md#no-one-wants-to-hear-you|And how you wish it wouldn't end]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/go_to_hell_for_heavens_sake.md#no-one-wants-to-hear-you-vyl-wnanory|Let's talk about the old days]] {#lets-talk-about-the-old-days-vyl-wnanory}
+#### [[notes/b/bring_me_the_horizon/sempiternal/go_to_hell_for_heavens_sake.md#lets-talk-about-the-old-days-vyl-wnanory|Let's talk about your friends]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/go_to_hell_for_heavens_sake.md#lets-talk-about-your-friends-vyl-wnanory|Let's talk about the summer]]
+#### [[notes/b/bring_me_the_horizon/sempiternal/go_to_hell_for_heavens_sake.md#lets-talk-about-the-summer-vyl-wnanory|And how you wish it wouldn't end]]
 &nbsp;
-#### [[notes/f/faith_no_more/the_real_thing/underwater_love.md#forever-longing-to-make-you-mine|Did I forget to tell you]]
-#### [[notes/f/faith_no_more/the_real_thing/underwater_love.md#forever-longing-to-make-you-mine|How pretty you looked in that dress?]]
-#### [[notes/f/faith_no_more/the_real_thing/underwater_love.md#forever-longing-to-make-you-mine|In the first time that I saw you]]
-#### [[notes/f/faith_no_more/the_real_thing/underwater_love.md#forever-longing-to-make-you-mine|You cleaned the mess from my head]]
+#### [[notes/f/faith_no_more/the_real_thing/underwater_love.md#forever-longing-to-make-you-mine-vyl-wnanory|Did I forget to tell you]] {#did-i-forget-to-tell-you-vyl-wnanory}
+#### [[notes/f/faith_no_more/the_real_thing/underwater_love.md#did-i-forget-to-tell-you-vyl-wnanory|How pretty you looked in that dress?]]
+#### [[notes/f/faith_no_more/the_real_thing/underwater_love.md#how-pretty-you-looked-in-that-dress-vyl-wnanory|In the first time that I saw you]]
+#### [[notes/f/faith_no_more/the_real_thing/underwater_love.md#in-the-first-time-that-i-saw-you-vyl-wnanory|You cleaned the mess from my head]]
 &nbsp;
-#### [[notes/b/boy_harsher/lesser_man_extended_version/lust.md#so-if-you-go--take-me-with-you|And I don't mind]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/lust.md#so-if-you-go--take-me-with-you|If we take our time]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/lust.md#so-if-you-go--take-me-with-you|No, I don't mind]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/lust.md#so-if-you-go--take-me-with-you-vyl-wnanory|And I don't mind]] {#and-i-dont-mind-vyl-wnanory}
+#### [[notes/b/boy_harsher/lesser_man_extended_version/lust.md#and-i-dont-mind-vyl-wnanory|If we take our time]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/lust.md#if-we-take-our-time-vyl-wnanory|No, I don't mind]]
 &nbsp;
-#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-way|Lets go walkin' on the boardwalk]]
-#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-way|Dip our feet into the sea]]
-#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-way|Lets find ourselves lost for hours]]
-#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-way|Until we find ourselves a drink]]
+#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-way-vyl-wnanory|Lets go walkin' on the boardwalk]] {#lets-go-walkin-on-the-boardwalk-vyl-wnanory}
+#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#lets-go-walkin-on-the-boardwalk-vyl-wnanory|Dip our feet into the sea]]
+#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#dip-our-feet-into-the-sea-vyl-wnanory|Lets find ourselves lost for hours]]
+#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#lets-find-ourselves-lost-for-hours-vyl-wnanory|Until we find ourselves a drink]]
 &nbsp;
-#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-ahh|Lets talk that sun into setting]]
-#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-ahh|Just need the sound of your voice]]
-#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-ahh|Need that calming and the comfort]]
-#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-ahh|Something to drown out the noise]]
+#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#im-so-sick-of-the-tension-ahh-vyl-wnanory|Lets talk that sun into setting]] {#lets-talk-that-sun-into-setting-vyl-wnanory}
+#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#lets-talk-that-sun-into-setting-vyl-wnanory|Just need the sound of your voice]]
+#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#just-need-the-sound-of-your-voice-vyl-wnanory|Need that calming and the comfort]]
+#### [[notes/l/linkin_park/hybrid_theory/a_place_for_my_head.md#need-that-calming-and-the-comfort-vyl-wnanory|Something to drown out the noise]]
 &nbsp;
-#### [[notes/d/deadmau5/get_scraped/careless.md#youre-wasting-our-time|And I don't mind]]
-#### [[notes/d/deadmau5/get_scraped/careless.md#youre-wasting-our-time|If we take our time]]
-#### [[notes/d/deadmau5/get_scraped/careless.md#youre-wasting-our-time|'Cause I'm all yours]]
-#### [[notes/d/deadmau5/get_scraped/careless.md#youre-wasting-our-time|If you're all mine]]
+#### [[notes/d/deadmau5/get_scraped/careless.md#youre-wasting-our-time-vyl-wnanory|And I don't mind]]
+#### [[notes/d/deadmau5/get_scraped/careless.md#and-i-dont-mind-vyl-wnanory|If we take our time]]
+#### [[notes/d/deadmau5/get_scraped/careless.md#if-we-take-our-time-vyl-wnanory|'Cause I'm all yours]]
+#### [[notes/d/deadmau5/get_scraped/careless.md#cause-im-all-yours-vyl-wnanory|If you're all mine]]
 &nbsp;
-#### [[notes/b/baxendale/poultrygeist__night_of_the_chicken_dead/slow_fast_food_love.md#all-these-fried-chicken-wings-that-im-serving|Something I've been meanin' to tell you]]
-#### [[notes/b/baxendale/poultrygeist__night_of_the_chicken_dead/slow_fast_food_love.md#all-these-fried-chicken-wings-that-im-serving|About three years and a day]]
-#### [[notes/b/baxendale/poultrygeist__night_of_the_chicken_dead/slow_fast_food_love.md#all-these-fried-chicken-wings-that-im-serving|I'd very much like to get married]]
-#### [[notes/b/baxendale/poultrygeist__night_of_the_chicken_dead/slow_fast_food_love.md#all-these-fried-chicken-wings-that-im-serving|Maybe have kids and move away]]
+#### [[notes/b/baxendale/poultrygeist__night_of_the_chicken_dead/slow_fast_food_love.md#all-these-fried-chicken-wings-that-im-serving-vyl-wnanory|Something I've been meanin' to tell you]] {#something-ive-been-meanin-to-tell-you-vyl-wnanory}
+#### [[notes/b/baxendale/poultrygeist__night_of_the_chicken_dead/slow_fast_food_love.md#something-ive-been-meanin-to-tell-you-vyl-wnanory|About three years and a day]]
+#### [[notes/b/baxendale/poultrygeist__night_of_the_chicken_dead/slow_fast_food_love.md#about-three-years-and-a-day-vyl-wnanory|I'd very much like to get married]]
+#### [[notes/b/baxendale/poultrygeist__night_of_the_chicken_dead/slow_fast_food_love.md#id-very-much-like-to-get-married-vyl-wnanory|Maybe have kids and move away]]
 &nbsp;
-#### [[notes/d/defeater/empty_days__sleepless_nights/empty_glass.md#because-there-aint-nothing-like-your-smile|'Cause there ain't nothing like your smile]]
-#### [[notes/d/defeater/empty_days__sleepless_nights/empty_glass.md#because-there-aint-nothing-like-your-smile|Your legs and those eyes]]
-#### [[notes/d/defeater/empty_days__sleepless_nights/empty_glass.md#because-there-aint-nothing-like-your-smile|I will beg and steal and borrow]]
-#### [[notes/d/defeater/empty_days__sleepless_nights/empty_glass.md#because-there-aint-nothing-like-your-smile|To keep you safe your whole life]]
+#### [[notes/d/defeater/empty_days__sleepless_nights/empty_glass.md#because-there-aint-nothing-like-your-smile-vyl-wnanory|'Cause there ain't nothing like your smile]] {#cause-there-aint-nothing-like-your-smile-vyl-wnanory}
+#### [[notes/d/defeater/empty_days__sleepless_nights/empty_glass.md#cause-there-aint-nothing-like-your-smile-vyl-wnanory|Your legs and those eyes]]
+#### [[notes/d/defeater/empty_days__sleepless_nights/empty_glass.md#your-legs-and-those-eyes-vyl-wnanory|I will beg and steal and borrow]]
+#### [[notes/d/defeater/empty_days__sleepless_nights/empty_glass.md#i-will-beg-and-steal-and-borrow-vyl-wnanory|To keep you safe your whole life]]
 &nbsp;
 #### And I don't mind
 #### If we take our time

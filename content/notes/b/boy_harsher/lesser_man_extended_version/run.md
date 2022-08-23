@@ -5,49 +5,49 @@ tags:
 - Lesser Man (extended version)
 ---
 &nbsp;
-#### [[notes/m/metallica/metallica/sad_but_true.md#hate-hate|I'm not the girl you thought you knew]]
-#### [[notes/m/metallica/metallica/sad_but_true.md#hate-hate|Take some time to work it through]]
-#### [[notes/m/metallica/metallica/sad_but_true.md#hate-hate|I'm not that person in the night]]
-#### [[notes/m/metallica/metallica/sad_but_true.md#hate-hate|I'm not that person in the night]]
+#### [[notes/m/metallica/metallica/sad_but_true.md#hate-hate-vyl-wnanory|I'm not the girl you thought you knew]] {#im-not-the-girl-you-thought-you-knew-vyl-wnanory}
+#### [[notes/m/metallica/metallica/sad_but_true.md#im-not-the-girl-you-thought-you-knew-vyl-wnanory|Take some time to work it through]]
+#### [[notes/m/metallica/metallica/sad_but_true.md#take-some-time-to-work-it-through-vyl-wnanory|I'm not that person in the night]]
+#### [[notes/m/metallica/metallica/sad_but_true.md#im-not-that-person-in-the-night-vyl-wnanory|I'm not that person in the night]]
 &nbsp;
-#### [[notes/g/godhead/evolver/the_giveaway.md#dont-you-think-this-is-unreal|Must've been fooled by my face]]
-#### [[notes/g/godhead/evolver/the_giveaway.md#dont-you-think-this-is-unreal|In the dark I could be anyone]]
-#### [[notes/g/godhead/evolver/the_giveaway.md#dont-you-think-this-is-unreal|Someone out there to take my place]]
-#### [[notes/g/godhead/evolver/the_giveaway.md#dont-you-think-this-is-unreal|Someone out there to take my place]]
+#### [[notes/g/godhead/evolver/the_giveaway.md#dont-you-think-this-is-unreal-vyl-wnanory|Must've been fooled by my face]] {#mustve-been-fooled-by-my-face-vyl-wnanory}
+#### [[notes/g/godhead/evolver/the_giveaway.md#mustve-been-fooled-by-my-face-vyl-wnanory|In the dark I could be anyone]]
+#### [[notes/g/godhead/evolver/the_giveaway.md#in-the-dark-i-could-be-anyone-vyl-wnanory|Someone out there to take my place]]
+#### [[notes/g/godhead/evolver/the_giveaway.md#someone-out-there-to-take-my-place-vyl-wnanory|Someone out there to take my place]]
 &nbsp;
-#### [[notes/c/curve/the_new_adventures_of_curve/signals_and_alibis.md#so-when-you-go-i-hope-you-know|I bet it is this gal I know]]
-#### [[notes/c/curve/the_new_adventures_of_curve/signals_and_alibis.md#so-when-you-go-i-hope-you-know|Something happens when she looks at me]]
-#### [[notes/c/curve/the_new_adventures_of_curve/signals_and_alibis.md#so-when-you-go-i-hope-you-know|I wish that I could let it go]]
-#### [[notes/c/curve/the_new_adventures_of_curve/signals_and_alibis.md#so-when-you-go-i-hope-you-know|I wish that I could let it go]]
+#### [[notes/c/curve/the_new_adventures_of_curve/signals_and_alibis.md#so-when-you-go-i-hope-you-know-vyl-wnanory|I bet it is this gal I know]] {#i-bet-it-is-this-gal-i-know-vyl-wnanory}
+#### [[notes/c/curve/the_new_adventures_of_curve/signals_and_alibis.md#i-bet-it-is-this-gal-i-know-vyl-wnanory|Something happens when she looks at me]]
+#### [[notes/c/curve/the_new_adventures_of_curve/signals_and_alibis.md#something-happens-when-she-looks-at-me-vyl-wnanory|I wish that I could let it go]]
+#### [[notes/c/curve/the_new_adventures_of_curve/signals_and_alibis.md#i-wish-that-i-could-let-it-go-vyl-wnanory|I wish that I could let it go]]
 &nbsp;
-#### [[notes/t/the_prodigy/invaders_must_die/run_with_the_wolves.md#you-run|Run, run, run]]
-#### [[notes/t/the_prodigy/invaders_must_die/run_with_the_wolves.md#you-run|Run, run]]
+#### [[notes/t/the_prodigy/invaders_must_die/run_with_the_wolves.md#you-run-vyl-wnanory|Run, run, run]] {#run-run-run-vyl-wnanory}
+#### [[notes/t/the_prodigy/invaders_must_die/run_with_the_wolves.md#run-run-run-vyl-wnanory|Run, run]]
 &nbsp;
-#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run|Run, run, run]]
-#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run|You better run]]
+#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run-vyl-wnanory|Run, run, run]]
+#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run-vyl-wnanory|You better run]]
 &nbsp;
 #### Run, run, run
 #### Run, run
 &nbsp;
-#### [[notes/p/pantera/i_am_the_night/forever_tonight.md#you-and-me|I'm not that person in the night]]
-#### [[notes/p/pantera/i_am_the_night/forever_tonight.md#you-and-me|I'm not that person in the night]]
-#### [[notes/p/pantera/i_am_the_night/forever_tonight.md#you-and-me|I'm not that person in the night]]
-#### [[notes/p/pantera/i_am_the_night/forever_tonight.md#you-and-me|In the dark I could be anyone]]
+#### [[notes/p/pantera/i_am_the_night/forever_tonight.md#you-and-me-vyl-wnanory|I'm not that person in the night]] {#im-not-that-person-in-the-night-vyl-wnanory}
+#### [[notes/p/pantera/i_am_the_night/forever_tonight.md#im-not-that-person-in-the-night-vyl-wnanory|I'm not that person in the night]]
+#### [[notes/p/pantera/i_am_the_night/forever_tonight.md#im-not-that-person-in-the-night-vyl-wnanory|I'm not that person in the night]]
+#### [[notes/p/pantera/i_am_the_night/forever_tonight.md#im-not-that-person-in-the-night-vyl-wnanory|In the dark I could be anyone]]
 &nbsp;
-#### [[notes/p/panic_at_the_disco/vices__virtues/lets_kill_tonight.md#whoa-|(Mmm )]]
+#### [[notes/p/panic_at_the_disco/vices__virtues/lets_kill_tonight.md#whoa-vyl-wnanory|(Mmm )]] {#mmm--vyl-wnanory}
 &nbsp;
 #### (Mmm )
 &nbsp;
 #### Run, run, run
 #### Run, run
 &nbsp;
-#### [[notes/s/slipknot/5__the_gray_chapter/lech.md#no-one-is-bulletproof|Ain't no one]]
-#### [[notes/s/slipknot/5__the_gray_chapter/lech.md#no-one-is-bulletproof|Ain't no one]]
+#### [[notes/s/slipknot/5__the_gray_chapter/lech.md#no-one-is-bulletproof-vyl-wnanory|Ain't no one]] {#aint-no-one-vyl-wnanory}
+#### [[notes/s/slipknot/5__the_gray_chapter/lech.md#aint-no-one-vyl-wnanory|Ain't no one]]
 &nbsp;
-#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run|You better run]]
-#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run|You better run]]
-#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run|You better run]]
-#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run|Run, run]]
+#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#run-run-run-vyl-wnanory|You better run]]
+#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#you-better-run-vyl-wnanory|You better run]]
+#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#you-better-run-vyl-wnanory|You better run]]
+#### [[notes/b/breaking_benjamin/ember/red_cold_river.md#you-better-run-vyl-wnanory|Run, run]]
 &nbsp;
 #### Ain't no one
 #### Ain't no one

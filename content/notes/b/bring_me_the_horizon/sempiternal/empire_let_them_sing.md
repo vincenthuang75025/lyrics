@@ -5,52 +5,52 @@ tags:
 - Sempiternal
 ---
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#youll-never-censor-me-youd-better-cherish-me|It's the start of the end, surrender the throne]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#youll-never-censor-me-youd-better-cherish-me|The blood on my hands covered the holes]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#youll-never-censor-me-youd-better-cherish-me|We've been surrounded by vicious cycles]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#youll-never-censor-me-youd-better-cherish-me|And we're truly alone]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#youll-never-censor-me-youd-better-cherish-me|The scars on your heart are yours to atone]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#youll-never-censor-me-youd-better-cherish-me|We've been surrounded, let 'em sing, let 'em sing]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#youll-never-censor-me-youd-better-cherish-me-vyl-wnanory|It's the start of the end, surrender the throne]] {#its-the-start-of-the-end-surrender-the-throne-vyl-wnanory}
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#its-the-start-of-the-end-surrender-the-throne-vyl-wnanory|The blood on my hands covered the holes]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#the-blood-on-my-hands-covered-the-holes-vyl-wnanory|We've been surrounded by vicious cycles]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#weve-been-surrounded-by-vicious-cycles-vyl-wnanory|And we're truly alone]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#and-were-truly-alone-vyl-wnanory|The scars on your heart are yours to atone]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#the-scars-on-your-heart-are-yours-to-atone-vyl-wnanory|We've been surrounded, let 'em sing, let 'em sing]]
 &nbsp;
-#### [[notes/d/deadmau5/4x412/sofi_needs_a_ladder.md#i-can-be-your-new-favorite-waste-of-time|The deeper you dig, the darker it gets]]
-#### [[notes/d/deadmau5/4x412/sofi_needs_a_ladder.md#i-can-be-your-new-favorite-waste-of-time|There's nowhere else for us to go]]
-#### [[notes/d/deadmau5/4x412/sofi_needs_a_ladder.md#i-can-be-your-new-favorite-waste-of-time|We live while we learn and then we forget]]
-#### [[notes/d/deadmau5/4x412/sofi_needs_a_ladder.md#i-can-be-your-new-favorite-waste-of-time|We'll never find our way back home, come on]]
+#### [[notes/d/deadmau5/4x412/sofi_needs_a_ladder.md#i-can-be-your-new-favorite-waste-of-time-vyl-wnanory|The deeper you dig, the darker it gets]] {#the-deeper-you-dig-the-darker-it-gets-vyl-wnanory}
+#### [[notes/d/deadmau5/4x412/sofi_needs_a_ladder.md#the-deeper-you-dig-the-darker-it-gets-vyl-wnanory|There's nowhere else for us to go]]
+#### [[notes/d/deadmau5/4x412/sofi_needs_a_ladder.md#theres-nowhere-else-for-us-to-go-vyl-wnanory|We live while we learn and then we forget]]
+#### [[notes/d/deadmau5/4x412/sofi_needs_a_ladder.md#we-live-while-we-learn-and-then-we-forget-vyl-wnanory|We'll never find our way back home, come on]]
 &nbsp;
-#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|They came like moths to a flame]]
-#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget|You left like a house in a hurricane]]
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#i-may-not-be-forgiven-but-i-forgave-and-ill-forget-vyl-wnanory|They came like moths to a flame]] {#they-came-like-moths-to-a-flame-vyl-wnanory}
+#### [[notes/t/the_ghost_inside/dear_youth/move_me.md#they-came-like-moths-to-a-flame-vyl-wnanory|You left like a house in a hurricane]]
 &nbsp;
-#### [[notes/d/daylight/jar/sponge.md#im-under-a-spell|(The wolves are at my door)]]
+#### [[notes/d/daylight/jar/sponge.md#im-under-a-spell-vyl-wnanory|(The wolves are at my door)]] {#the-wolves-are-at-my-door-vyl-wnanory}
 &nbsp;
-#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#firefly-could-you-shine-your-light|It's the start of the end, surrender the throne]]
-#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#firefly-could-you-shine-your-light|The blood on my hands covered the holes]]
-#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#firefly-could-you-shine-your-light|We've been surrounded by vicious cycles]]
-#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#firefly-could-you-shine-your-light|It's the start of the end and we're truly alone]]
-#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#firefly-could-you-shine-your-light|The scars on your heart are yours to atone]]
-#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#firefly-could-you-shine-your-light|We've been surrounded, let 'em sing, let 'em sing]]
+#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#firefly-could-you-shine-your-light-vyl-wnanory|It's the start of the end, surrender the throne]]
+#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#its-the-start-of-the-end-surrender-the-throne-vyl-wnanory|The blood on my hands covered the holes]]
+#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#the-blood-on-my-hands-covered-the-holes-vyl-wnanory|We've been surrounded by vicious cycles]]
+#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#weve-been-surrounded-by-vicious-cycles-vyl-wnanory|It's the start of the end and we're truly alone]]
+#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#its-the-start-of-the-end-and-were-truly-alone-vyl-wnanory|The scars on your heart are yours to atone]]
+#### [[notes/b/breaking_benjamin/we_are_not_alone/firefly.md#the-scars-on-your-heart-are-yours-to-atone-vyl-wnanory|We've been surrounded, let 'em sing, let 'em sing]]
 &nbsp;
-#### [[notes/d/deadmau5/seeya/seeya.md#behind-the-darkness-theres-a-sea-of-neon-lights|I hear them clawing at the gates (Let us in, let us in)]]
-#### [[notes/d/deadmau5/seeya/seeya.md#behind-the-darkness-theres-a-sea-of-neon-lights|I hear them calling out my name (I don't care)]]
+#### [[notes/d/deadmau5/seeya/seeya.md#behind-the-darkness-theres-a-sea-of-neon-lights-vyl-wnanory|I hear them clawing at the gates (Let us in, let us in)]] {#i-hear-them-clawing-at-the-gates-let-us-in-let-us-in-vyl-wnanory}
+#### [[notes/d/deadmau5/seeya/seeya.md#i-hear-them-clawing-at-the-gates-let-us-in-let-us-in-vyl-wnanory|I hear them calling out my name (I don't care)]]
 &nbsp;
-#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#they-wonder-why-i-hide-myself-from-everyone|Let them sing, let them sing, let them sing]]
-#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#they-wonder-why-i-hide-myself-from-everyone|Let them bastards sing]]
-#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#they-wonder-why-i-hide-myself-from-everyone|Let them sing, let them sing]]
-#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#they-wonder-why-i-hide-myself-from-everyone|Let them bastards sing]]
-#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#they-wonder-why-i-hide-myself-from-everyone|Let them sing, let them sing]]
-#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#they-wonder-why-i-hide-myself-from-everyone|Let them bastards sing]]
-#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#they-wonder-why-i-hide-myself-from-everyone|Let them godforsaken bastards sing]]
+#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#they-wonder-why-i-hide-myself-from-everyone-vyl-wnanory|Let them sing, let them sing, let them sing]] {#let-them-sing-let-them-sing-let-them-sing-vyl-wnanory}
+#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#let-them-sing-let-them-sing-let-them-sing-vyl-wnanory|Let them bastards sing]]
+#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#let-them-bastards-sing-vyl-wnanory|Let them sing, let them sing]]
+#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#let-them-sing-let-them-sing-vyl-wnanory|Let them bastards sing]]
+#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#let-them-bastards-sing-vyl-wnanory|Let them sing, let them sing]]
+#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#let-them-sing-let-them-sing-vyl-wnanory|Let them bastards sing]]
+#### [[notes/a/a_day_to_remember/common_courtesy/i_remember.md#let-them-bastards-sing-vyl-wnanory|Let them godforsaken bastards sing]]
 &nbsp;
 #### They came like moths to a flame
 #### You left like a house in a hurricane
 &nbsp;
-#### [[notes/b/boy_harsher/careful/lost.md#but-i-cant|The wolves are at my door]]
-#### [[notes/b/boy_harsher/careful/lost.md#but-i-cant|But I can't see the writin' on the walls]]
-#### [[notes/b/boy_harsher/careful/lost.md#but-i-cant|The wolves are at my door]]
-#### [[notes/b/boy_harsher/careful/lost.md#but-i-cant|Waiting for my empire to fall]]
+#### [[notes/b/boy_harsher/careful/lost.md#but-i-cant-vyl-wnanory|The wolves are at my door]]
+#### [[notes/b/boy_harsher/careful/lost.md#the-wolves-are-at-my-door-vyl-wnanory|But I can't see the writin' on the walls]]
+#### [[notes/b/boy_harsher/careful/lost.md#but-i-cant-see-the-writin-on-the-walls-vyl-wnanory|The wolves are at my door]]
+#### [[notes/b/boy_harsher/careful/lost.md#the-wolves-are-at-my-door-vyl-wnanory|Waiting for my empire to fall]]
 &nbsp;
-#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#im-just-trying-for|It's the start of the end, surrender the throne]]
-#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#im-just-trying-for|The blood on my hands covered the holes]]
-#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#im-just-trying-for|We've been surrounded by vicious cycles]]
-#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#im-just-trying-for|It's the start of the end, and we're truly alone]]
-#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#im-just-trying-for|The scars on your heart are yours to atone]]
-#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#im-just-trying-for|We've been surrounded, let 'em sing, let 'em sing!]]
+#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#im-just-trying-for-vyl-wnanory|It's the start of the end, surrender the throne]]
+#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#its-the-start-of-the-end-surrender-the-throne-vyl-wnanory|The blood on my hands covered the holes]]
+#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#the-blood-on-my-hands-covered-the-holes-vyl-wnanory|We've been surrounded by vicious cycles]]
+#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#weve-been-surrounded-by-vicious-cycles-vyl-wnanory|It's the start of the end, and we're truly alone]]
+#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#its-the-start-of-the-end-and-were-truly-alone-vyl-wnanory|The scars on your heart are yours to atone]]
+#### [[notes/s/spc_eco/under_my_skin/under_my_skin.md#the-scars-on-your-heart-are-yours-to-atone-vyl-wnanory|We've been surrounded, let 'em sing, let 'em sing!]]

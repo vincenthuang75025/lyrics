@@ -5,26 +5,26 @@ tags:
 - Killers
 ---
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#mother-nature-is-a-coward-mother-nature-is-a-whore|I was born into a scene of angriness and greed, and dominance and persecution.]]
-#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#mother-nature-is-a-coward-mother-nature-is-a-whore|My mother was a queen, my dad I've never seen, I was never meant to be.]]
+#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#mother-nature-is-a-coward-mother-nature-is-a-whore-vyl-wnanory|I was born into a scene of angriness and greed, and dominance and persecution.]] {#i-was-born-into-a-scene-of-angriness-and-greed-and-dominance-and-persecution-vyl-wnanory}
+#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#i-was-born-into-a-scene-of-angriness-and-greed-and-dominance-and-persecution-vyl-wnanory|My mother was a queen, my dad I've never seen, I was never meant to be.]]
 &nbsp;
-#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#sincere|Now I spend my time looking all around,]]
-#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#sincere|For a man that's nowhere to be found.]]
-#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#sincere|Until I find him I'm never gonna stop searching,]]
-#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#sincere|I'm gonna find my man, gonna travel around.]]
+#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#sincere-vyl-wnanory|Now I spend my time looking all around,]] {#now-i-spend-my-time-looking-all-around-vyl-wnanory}
+#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#now-i-spend-my-time-looking-all-around-vyl-wnanory|For a man that's nowhere to be found.]]
+#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#for-a-man-thats-nowhere-to-be-found-vyl-wnanory|Until I find him I'm never gonna stop searching,]]
+#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#until-i-find-him-im-never-gonna-stop-searching-vyl-wnanory|I'm gonna find my man, gonna travel around.]]
 &nbsp;
-#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#sincere|'Cause I'm a wrathchild, well I'm a wrathchild.]]
-#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#sincere|Yeah I'm a wrathchild. I'm coming to get you, oh yeah.]]
+#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#sincere-vyl-wnanory|'Cause I'm a wrathchild, well I'm a wrathchild.]] {#cause-im-a-wrathchild-well-im-a-wrathchild-vyl-wnanory}
+#### [[notes/a/as_i_lay_dying/awakened/a_greater_foundation.md#cause-im-a-wrathchild-well-im-a-wrathchild-vyl-wnanory|Yeah I'm a wrathchild. I'm coming to get you, oh yeah.]]
 &nbsp;
 #### Oh yeah
 &nbsp;
-#### [[notes/a/alaska_highway/closure/event_horizon_hybrid_mix.md#in-your-hands-i-placed-my-heart|Say it doesn't matter ain't nothin' gonna alter the course of my destination.]]
-#### [[notes/a/alaska_highway/closure/event_horizon_hybrid_mix.md#in-your-hands-i-placed-my-heart|I know I've got to find some serious piece of mind, or I know I'll go crazy.]]
+#### [[notes/a/alaska_highway/closure/event_horizon_hybrid_mix.md#in-your-hands-i-placed-my-heart-vyl-wnanory|Say it doesn't matter ain't nothin' gonna alter the course of my destination.]] {#say-it-doesnt-matter-aint-nothin-gonna-alter-the-course-of-my-destination-vyl-wnanory}
+#### [[notes/a/alaska_highway/closure/event_horizon_hybrid_mix.md#say-it-doesnt-matter-aint-nothin-gonna-alter-the-course-of-my-destination-vyl-wnanory|I know I've got to find some serious piece of mind, or I know I'll go crazy.]]
 &nbsp;
-#### [[notes/a/as_i_lay_dying/awakened/resilience.md#at-times-im-carried-on-the-shoulders-of-a-child|But now I spend my time looking all around,]]
-#### [[notes/a/as_i_lay_dying/awakened/resilience.md#at-times-im-carried-on-the-shoulders-of-a-child|For a man thats nowhere to be found.]]
-#### [[notes/a/as_i_lay_dying/awakened/resilience.md#at-times-im-carried-on-the-shoulders-of-a-child|Until I find him I'm never gonna stop searching,]]
-#### [[notes/a/as_i_lay_dying/awakened/resilience.md#at-times-im-carried-on-the-shoulders-of-a-child|I'm gonna find my man, gonna travel around.]]
+#### [[notes/a/as_i_lay_dying/awakened/resilience.md#at-times-im-carried-on-the-shoulders-of-a-child-vyl-wnanory|But now I spend my time looking all around,]] {#but-now-i-spend-my-time-looking-all-around-vyl-wnanory}
+#### [[notes/a/as_i_lay_dying/awakened/resilience.md#but-now-i-spend-my-time-looking-all-around-vyl-wnanory|For a man thats nowhere to be found.]]
+#### [[notes/a/as_i_lay_dying/awakened/resilience.md#for-a-man-thats-nowhere-to-be-found-vyl-wnanory|Until I find him I'm never gonna stop searching,]]
+#### [[notes/a/as_i_lay_dying/awakened/resilience.md#until-i-find-him-im-never-gonna-stop-searching-vyl-wnanory|I'm gonna find my man, gonna travel around.]]
 &nbsp;
 #### 'Cause I'm a wrathchild, well I'm a wrathchild.
 #### Yeah I'm a wrathchild. I'm coming to get you, oh yeah.

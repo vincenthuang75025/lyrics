@@ -5,50 +5,50 @@ tags:
 - Teardrop Hittin' the Ground
 ---
 &nbsp;
-#### [[notes/l/linkin_park/living_things/castle_of_glass.md#cause-im-only-a-crack-in-this-castle-of-glass|Anything, see]]
-#### [[notes/l/linkin_park/living_things/castle_of_glass.md#cause-im-only-a-crack-in-this-castle-of-glass|Anything I]]
-#### [[notes/l/linkin_park/living_things/castle_of_glass.md#cause-im-only-a-crack-in-this-castle-of-glass|Only wanna]]
-#### [[notes/l/linkin_park/living_things/castle_of_glass.md#cause-im-only-a-crack-in-this-castle-of-glass|See your lips move slow]]
+#### [[notes/l/linkin_park/living_things/castle_of_glass.md#cause-im-only-a-crack-in-this-castle-of-glass-vyl-wnanory|Anything, see]] {#anything-see-vyl-wnanory}
+#### [[notes/l/linkin_park/living_things/castle_of_glass.md#anything-see-vyl-wnanory|Anything I]]
+#### [[notes/l/linkin_park/living_things/castle_of_glass.md#anything-i-vyl-wnanory|Only wanna]]
+#### [[notes/l/linkin_park/living_things/castle_of_glass.md#only-wanna-vyl-wnanory|See your lips move slow]]
 &nbsp;
-#### [[notes/p/parcels/parcels/comedown.md#come-down-come-down-come-down-come-down|Down, down, down, down, down, down, down, down]]
+#### [[notes/p/parcels/parcels/comedown.md#come-down-come-down-come-down-come-down-vyl-wnanory|Down, down, down, down, down, down, down, down]] {#down-down-down-down-down-down-down-down-vyl-wnanory}
 &nbsp;
-#### [[notes/t/the_prodigy/invaders_must_die/colours.md#i-can-see-the-freak-in-your-eyes|I can see you]]
-#### [[notes/t/the_prodigy/invaders_must_die/colours.md#i-can-see-the-freak-in-your-eyes|It's revision]]
-#### [[notes/t/the_prodigy/invaders_must_die/colours.md#i-can-see-the-freak-in-your-eyes|Dancing body]]
-#### [[notes/t/the_prodigy/invaders_must_die/colours.md#i-can-see-the-freak-in-your-eyes|In the afterglow]]
-&nbsp;
-#### Down, down, down, down, down, down, down, down
-&nbsp;
-#### [[notes/b/boy_harsher/careful/la.md#i-wanna-feel-you|Anything do]]
-#### [[notes/b/boy_harsher/careful/la.md#i-wanna-feel-you|Anything I]]
-#### [[notes/b/boy_harsher/careful/la.md#i-wanna-feel-you|Only wanna]]
-#### [[notes/b/boy_harsher/careful/la.md#i-wanna-feel-you|Feel your spirit move]]
+#### [[notes/t/the_prodigy/invaders_must_die/colours.md#i-can-see-the-freak-in-your-eyes-vyl-wnanory|I can see you]] {#i-can-see-you-vyl-wnanory}
+#### [[notes/t/the_prodigy/invaders_must_die/colours.md#i-can-see-you-vyl-wnanory|It's revision]]
+#### [[notes/t/the_prodigy/invaders_must_die/colours.md#its-revision-vyl-wnanory|Dancing body]]
+#### [[notes/t/the_prodigy/invaders_must_die/colours.md#dancing-body-vyl-wnanory|In the afterglow]]
 &nbsp;
 #### Down, down, down, down, down, down, down, down
 &nbsp;
-#### [[notes/p/pantera/projects_in_the_jungle/takin_my_life.md#all-my-life|I've been searching]]
-#### [[notes/p/pantera/projects_in_the_jungle/takin_my_life.md#all-my-life|Corners of the nighttime]]
-#### [[notes/p/pantera/projects_in_the_jungle/takin_my_life.md#all-my-life|Baby]]
-#### [[notes/p/pantera/projects_in_the_jungle/takin_my_life.md#all-my-life|Where did you get to?]]
+#### [[notes/b/boy_harsher/careful/la.md#i-wanna-feel-you-vyl-wnanory|Anything do]] {#anything-do-vyl-wnanory}
+#### [[notes/b/boy_harsher/careful/la.md#anything-do-vyl-wnanory|Anything I]]
+#### [[notes/b/boy_harsher/careful/la.md#anything-i-vyl-wnanory|Only wanna]]
+#### [[notes/b/boy_harsher/careful/la.md#only-wanna-vyl-wnanory|Feel your spirit move]]
 &nbsp;
 #### Down, down, down, down, down, down, down, down
 &nbsp;
-#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die|I hear they say]]
-#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die| Lucifer rising]]
-#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die|Strange kiss you bring]]
-#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die|Lucifer rising]]
-&nbsp;
-#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#there-is-failure-inside|Perfect skin]]
-#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#there-is-failure-inside|You're fitting in]]
-#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#there-is-failure-inside|I]]
-#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#there-is-failure-inside|Betcha make the sunshine feel shy]]
+#### [[notes/p/pantera/projects_in_the_jungle/takin_my_life.md#all-my-life-vyl-wnanory|I've been searching]] {#ive-been-searching-vyl-wnanory}
+#### [[notes/p/pantera/projects_in_the_jungle/takin_my_life.md#ive-been-searching-vyl-wnanory|Corners of the nighttime]]
+#### [[notes/p/pantera/projects_in_the_jungle/takin_my_life.md#corners-of-the-nighttime-vyl-wnanory|Baby]]
+#### [[notes/p/pantera/projects_in_the_jungle/takin_my_life.md#baby-vyl-wnanory|Where did you get to?]]
 &nbsp;
 #### Down, down, down, down, down, down, down, down
 &nbsp;
-#### [[notes/a/alaska_highway/closure/aesthetic.md#palest-rain-that-touched-my-face|Everybody]]
-#### [[notes/a/alaska_highway/closure/aesthetic.md#palest-rain-that-touched-my-face|Loves you baby]]
-#### [[notes/a/alaska_highway/closure/aesthetic.md#palest-rain-that-touched-my-face|Everybody]]
-#### [[notes/a/alaska_highway/closure/aesthetic.md#palest-rain-that-touched-my-face|Wants you   so do I]]
+#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#take-a-look-to-the-sky-just-before-you-die-vyl-wnanory|I hear they say]] {#i-hear-they-say-vyl-wnanory}
+#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#i-hear-they-say-vyl-wnanory| Lucifer rising]]
+#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#-lucifer-rising-vyl-wnanory|Strange kiss you bring]]
+#### [[notes/m/metallica/ride_the_lightning/for_whom_the_bell_tolls.md#strange-kiss-you-bring-vyl-wnanory|Lucifer rising]]
+&nbsp;
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#there-is-failure-inside-vyl-wnanory|Perfect skin]] {#perfect-skin-vyl-wnanory}
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#perfect-skin-vyl-wnanory|You're fitting in]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#youre-fitting-in-vyl-wnanory|I]]
+#### [[notes/o/opeth/black_water_park/the_drapery_falls.md#i-vyl-wnanory|Betcha make the sunshine feel shy]]
+&nbsp;
+#### Down, down, down, down, down, down, down, down
+&nbsp;
+#### [[notes/a/alaska_highway/closure/aesthetic.md#palest-rain-that-touched-my-face-vyl-wnanory|Everybody]] {#everybody-vyl-wnanory}
+#### [[notes/a/alaska_highway/closure/aesthetic.md#everybody-vyl-wnanory|Loves you baby]]
+#### [[notes/a/alaska_highway/closure/aesthetic.md#loves-you-baby-vyl-wnanory|Everybody]]
+#### [[notes/a/alaska_highway/closure/aesthetic.md#everybody-vyl-wnanory|Wants you   so do I]]
 &nbsp;
 #### Down, down, down, down, down, down, down, down
 &nbsp;
@@ -57,10 +57,10 @@ tags:
 #### Strange kiss you bring
 #### Lucifer rising
 &nbsp;
-#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#fear-in-the-face-of-the-unknown|Ram me through nights]]
-#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#fear-in-the-face-of-the-unknown|Our summer]]
-#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#fear-in-the-face-of-the-unknown|With flowers in our hair]]
-#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#fear-in-the-face-of-the-unknown|Paradise is ours to share]]
+#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#fear-in-the-face-of-the-unknown-vyl-wnanory|Ram me through nights]] {#ram-me-through-nights-vyl-wnanory}
+#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#ram-me-through-nights-vyl-wnanory|Our summer]]
+#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#our-summer-vyl-wnanory|With flowers in our hair]]
+#### [[notes/p/parkway_drive/atlas/sleight_of_hand.md#with-flowers-in-our-hair-vyl-wnanory|Paradise is ours to share]]
 &nbsp;
 #### I hear they say
 ####  Lucifer rising 
@@ -72,8 +72,8 @@ tags:
 #### Strange kiss you bring
 #### Lucifer rising
 &nbsp;
-#### [[notes/d/depeche_mode/exciter/dream_on.md#as-your-bony-fingers-close-around-me|Rising]]
+#### [[notes/d/depeche_mode/exciter/dream_on.md#as-your-bony-fingers-close-around-me-vyl-wnanory|Rising]] {#rising-vyl-wnanory}
 &nbsp;
-#### [[notes/w/walls_of_jericho/the_american_dream/i_the_hunter.md#close-your-eyes-and-wait-for-it|Lucifer rising]]
+#### [[notes/w/walls_of_jericho/the_american_dream/i_the_hunter.md#close-your-eyes-and-wait-for-it-vyl-wnanory|Lucifer rising]] {#lucifer-rising-vyl-wnanory}
 &nbsp;
-#### [[notes/m/mazzy_star/so_tonight_that_i_might_see/fade_into_you.md#i-think-its-strange-you-never-knew|Strange]]
+#### [[notes/m/mazzy_star/so_tonight_that_i_might_see/fade_into_you.md#i-think-its-strange-you-never-knew-vyl-wnanory|Strange]] {#strange-vyl-wnanory}

@@ -5,12 +5,12 @@ tags:
 - album title goes here
 ---
 &nbsp;
-#### [[notes/s/sum_41/underclass_hero/with_me.md#in-front-of-your-eyes|I'm not helping anymore,]]
-#### [[notes/s/sum_41/underclass_hero/with_me.md#in-front-of-your-eyes|you don't know what you're looking for.]]
-#### [[notes/s/sum_41/underclass_hero/with_me.md#in-front-of-your-eyes|I just know how weak you are,]]
-#### [[notes/s/sum_41/underclass_hero/with_me.md#in-front-of-your-eyes|you're gonna find another star.]]
+#### [[notes/s/sum_41/underclass_hero/with_me.md#in-front-of-your-eyes-vyl-wnanory|I'm not helping anymore,]] {#im-not-helping-anymore-vyl-wnanory}
+#### [[notes/s/sum_41/underclass_hero/with_me.md#im-not-helping-anymore-vyl-wnanory|you don't know what you're looking for.]]
+#### [[notes/s/sum_41/underclass_hero/with_me.md#you-dont-know-what-youre-looking-for-vyl-wnanory|I just know how weak you are,]]
+#### [[notes/s/sum_41/underclass_hero/with_me.md#i-just-know-how-weak-you-are-vyl-wnanory|you're gonna find another star.]]
 &nbsp;
-#### [[notes/p/panic_at_the_disco/pretty_odd/from_a_mountain_in_the_middle_of_the_cabins.md#go-spin-circles-for-me|Sinking slowly in the tide,]]
-#### [[notes/p/panic_at_the_disco/pretty_odd/from_a_mountain_in_the_middle_of_the_cabins.md#go-spin-circles-for-me|silent strangers on the side.]]
-#### [[notes/p/panic_at_the_disco/pretty_odd/from_a_mountain_in_the_middle_of_the_cabins.md#go-spin-circles-for-me|Lies are dripping off your face,]]
-#### [[notes/p/panic_at_the_disco/pretty_odd/from_a_mountain_in_the_middle_of_the_cabins.md#go-spin-circles-for-me|take me to a noble place.]]
+#### [[notes/p/panic_at_the_disco/pretty_odd/from_a_mountain_in_the_middle_of_the_cabins.md#go-spin-circles-for-me-vyl-wnanory|Sinking slowly in the tide,]] {#sinking-slowly-in-the-tide-vyl-wnanory}
+#### [[notes/p/panic_at_the_disco/pretty_odd/from_a_mountain_in_the_middle_of_the_cabins.md#sinking-slowly-in-the-tide-vyl-wnanory|silent strangers on the side.]]
+#### [[notes/p/panic_at_the_disco/pretty_odd/from_a_mountain_in_the_middle_of_the_cabins.md#silent-strangers-on-the-side-vyl-wnanory|Lies are dripping off your face,]]
+#### [[notes/p/panic_at_the_disco/pretty_odd/from_a_mountain_in_the_middle_of_the_cabins.md#lies-are-dripping-off-your-face-vyl-wnanory|take me to a noble place.]]

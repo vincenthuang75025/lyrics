@@ -5,43 +5,43 @@ tags:
 - Violator
 ---
 &nbsp;
-#### [[notes/t/touché_amoré/is_survived_by/to_write_content.md#and-it-still-is-and-it-still-is|Let me take you on a trip]]
-#### [[notes/t/touché_amoré/is_survived_by/to_write_content.md#and-it-still-is-and-it-still-is|Around the world and back]]
-#### [[notes/t/touché_amoré/is_survived_by/to_write_content.md#and-it-still-is-and-it-still-is|And you won't have to move]]
-#### [[notes/t/touché_amoré/is_survived_by/to_write_content.md#and-it-still-is-and-it-still-is|You just sit still]]
+#### [[notes/t/touché_amoré/is_survived_by/to_write_content.md#and-it-still-is-and-it-still-is-vyl-wnanory|Let me take you on a trip]] {#let-me-take-you-on-a-trip-vyl-wnanory}
+#### [[notes/t/touché_amoré/is_survived_by/to_write_content.md#let-me-take-you-on-a-trip-vyl-wnanory|Around the world and back]]
+#### [[notes/t/touché_amoré/is_survived_by/to_write_content.md#around-the-world-and-back-vyl-wnanory|And you won't have to move]]
+#### [[notes/t/touché_amoré/is_survived_by/to_write_content.md#and-you-wont-have-to-move-vyl-wnanory|You just sit still]]
 &nbsp;
-#### [[notes/a/atari_teenage_riot/reset/street_grime.md#ive-been-standing-here-for-55-minutes|Now let your mind do the walking]]
-#### [[notes/a/atari_teenage_riot/reset/street_grime.md#ive-been-standing-here-for-55-minutes|And let my body do the talking]]
-#### [[notes/a/atari_teenage_riot/reset/street_grime.md#ive-been-standing-here-for-55-minutes|Let me show you the world in my eyes]]
+#### [[notes/a/atari_teenage_riot/reset/street_grime.md#ive-been-standing-here-for-55-minutes-vyl-wnanory|Now let your mind do the walking]] {#now-let-your-mind-do-the-walking-vyl-wnanory}
+#### [[notes/a/atari_teenage_riot/reset/street_grime.md#now-let-your-mind-do-the-walking-vyl-wnanory|And let my body do the talking]]
+#### [[notes/a/atari_teenage_riot/reset/street_grime.md#and-let-my-body-do-the-talking-vyl-wnanory|Let me show you the world in my eyes]]
 &nbsp;
-#### [[notes/a/avenged_sevenfold/nightmare/natural_born_killer.md#cant-bribe-me-with-money|I'll take you to the highest mountain]]
-#### [[notes/a/avenged_sevenfold/nightmare/natural_born_killer.md#cant-bribe-me-with-money|To the depths of the deepest sea]]
-#### [[notes/a/avenged_sevenfold/nightmare/natural_born_killer.md#cant-bribe-me-with-money|And we won't need a map, believe me]]
+#### [[notes/a/avenged_sevenfold/nightmare/natural_born_killer.md#cant-bribe-me-with-money-vyl-wnanory|I'll take you to the highest mountain]] {#ill-take-you-to-the-highest-mountain-vyl-wnanory}
+#### [[notes/a/avenged_sevenfold/nightmare/natural_born_killer.md#ill-take-you-to-the-highest-mountain-vyl-wnanory|To the depths of the deepest sea]]
+#### [[notes/a/avenged_sevenfold/nightmare/natural_born_killer.md#to-the-depths-of-the-deepest-sea-vyl-wnanory|And we won't need a map, believe me]]
 &nbsp;
-#### [[notes/e/enter_shikari/the_last_garrison/the_last_garrison.md#the-adrenaline-bursts-through-the-riverbanks|Now let my body do the moving]]
-#### [[notes/e/enter_shikari/the_last_garrison/the_last_garrison.md#the-adrenaline-bursts-through-the-riverbanks|And let my hands do the soothing]]
-#### [[notes/e/enter_shikari/the_last_garrison/the_last_garrison.md#the-adrenaline-bursts-through-the-riverbanks|Let me show you the world in my eyes]]
+#### [[notes/e/enter_shikari/the_last_garrison/the_last_garrison.md#the-adrenaline-bursts-through-the-riverbanks-vyl-wnanory|Now let my body do the moving]] {#now-let-my-body-do-the-moving-vyl-wnanory}
+#### [[notes/e/enter_shikari/the_last_garrison/the_last_garrison.md#now-let-my-body-do-the-moving-vyl-wnanory|And let my hands do the soothing]]
+#### [[notes/e/enter_shikari/the_last_garrison/the_last_garrison.md#and-let-my-hands-do-the-soothing-vyl-wnanory|Let me show you the world in my eyes]]
 &nbsp;
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#there-is-nothing-you-can-do|That's all there is]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#there-is-nothing-you-can-do|Nothing more than you can feel now]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#there-is-nothing-you-can-do|That's all there is]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#there-is-nothing-you-can-do-vyl-wnanory|That's all there is]] {#thats-all-there-is-vyl-wnanory}
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#thats-all-there-is-vyl-wnanory|Nothing more than you can feel now]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#nothing-more-than-you-can-feel-now-vyl-wnanory|That's all there is]]
 &nbsp;
-#### [[notes/s/sonic_youth/murray_st/karen_revisited.md#heard-your-name-the-other-day-its-been-a-long-long-time|Let me put you on a ship]]
-#### [[notes/s/sonic_youth/murray_st/karen_revisited.md#heard-your-name-the-other-day-its-been-a-long-long-time|On a long, long trip]]
-#### [[notes/s/sonic_youth/murray_st/karen_revisited.md#heard-your-name-the-other-day-its-been-a-long-long-time|Your lips close to my lips]]
+#### [[notes/s/sonic_youth/murray_st/karen_revisited.md#heard-your-name-the-other-day-its-been-a-long-long-time-vyl-wnanory|Let me put you on a ship]] {#let-me-put-you-on-a-ship-vyl-wnanory}
+#### [[notes/s/sonic_youth/murray_st/karen_revisited.md#let-me-put-you-on-a-ship-vyl-wnanory|On a long, long trip]]
+#### [[notes/s/sonic_youth/murray_st/karen_revisited.md#on-a-long-long-trip-vyl-wnanory|Your lips close to my lips]]
 &nbsp;
-#### [[notes/m/massive_attack/mezzanine/inertia_creeps.md#recollect-me-darling-raise-me-to-your-lips|All the islands in the ocean]]
-#### [[notes/m/massive_attack/mezzanine/inertia_creeps.md#recollect-me-darling-raise-me-to-your-lips|All the heaven's in the motion]]
-#### [[notes/m/massive_attack/mezzanine/inertia_creeps.md#recollect-me-darling-raise-me-to-your-lips|Let me show you the world in my eyes]]
+#### [[notes/m/massive_attack/mezzanine/inertia_creeps.md#recollect-me-darling-raise-me-to-your-lips-vyl-wnanory|All the islands in the ocean]] {#all-the-islands-in-the-ocean-vyl-wnanory}
+#### [[notes/m/massive_attack/mezzanine/inertia_creeps.md#all-the-islands-in-the-ocean-vyl-wnanory|All the heaven's in the motion]]
+#### [[notes/m/massive_attack/mezzanine/inertia_creeps.md#all-the-heavens-in-the-motion-vyl-wnanory|Let me show you the world in my eyes]]
 &nbsp;
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#there-is-nothing-you-can-do|That's all there is]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#there-is-nothing-you-can-do|Nothing more than you can touch now]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#there-is-nothing-you-can-do|That's all there is]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#there-is-nothing-you-can-do-vyl-wnanory|That's all there is]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#thats-all-there-is-vyl-wnanory|Nothing more than you can touch now]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/last_blues_for_bloody_knuckles.md#nothing-more-than-you-can-touch-now-vyl-wnanory|That's all there is]]
 &nbsp;
-#### [[notes/t/type_o_negative/life_is_killing_me/nettie.md#let-me-|Let me show you the world in my eyes]]
-#### [[notes/t/type_o_negative/life_is_killing_me/nettie.md#let-me-|Let me show you the world in my eyes]]
-#### [[notes/t/type_o_negative/life_is_killing_me/nettie.md#let-me-|Let me show you the world in my eyes]]
-#### [[notes/t/type_o_negative/life_is_killing_me/nettie.md#let-me-|Let me show you the world in my eyes]]
+#### [[notes/t/type_o_negative/life_is_killing_me/nettie.md#let-me-vyl-wnanory|Let me show you the world in my eyes]] {#let-me-show-you-the-world-in-my-eyes-vyl-wnanory}
+#### [[notes/t/type_o_negative/life_is_killing_me/nettie.md#let-me-show-you-the-world-in-my-eyes-vyl-wnanory|Let me show you the world in my eyes]]
+#### [[notes/t/type_o_negative/life_is_killing_me/nettie.md#let-me-show-you-the-world-in-my-eyes-vyl-wnanory|Let me show you the world in my eyes]]
+#### [[notes/t/type_o_negative/life_is_killing_me/nettie.md#let-me-show-you-the-world-in-my-eyes-vyl-wnanory|Let me show you the world in my eyes]]
 &nbsp;
 #### Let me show you the world in my eyes
 #### Let me show you the world in my eyes

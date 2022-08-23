@@ -5,33 +5,33 @@ tags:
 - Slania
 ---
 &nbsp;
-#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#how-much-is-real-so-much-to-question|The calling wind on my face]]
-#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#how-much-is-real-so-much-to-question|Waving from the summoning of giants]]
-#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#how-much-is-real-so-much-to-question|That heals my soul]]
+#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#how-much-is-real-so-much-to-question-vyl-wnanory|The calling wind on my face]] {#the-calling-wind-on-my-face-vyl-wnanory}
+#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#the-calling-wind-on-my-face-vyl-wnanory|Waving from the summoning of giants]]
+#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#waving-from-the-summoning-of-giants-vyl-wnanory|That heals my soul]]
 &nbsp;
-#### [[notes/t/the_sisters_of_mercy/vision_thing/more.md#there-are-parts-of-me-that-dont-get-nervous-|The virile fragrance of alpine tor]]
-#### [[notes/t/the_sisters_of_mercy/vision_thing/more.md#there-are-parts-of-me-that-dont-get-nervous-|The blowing breath of this fold]]
-#### [[notes/t/the_sisters_of_mercy/vision_thing/more.md#there-are-parts-of-me-that-dont-get-nervous-|That dreams me]]
+#### [[notes/t/the_sisters_of_mercy/vision_thing/more.md#there-are-parts-of-me-that-dont-get-nervous-vyl-wnanory|The virile fragrance of alpine tor]] {#the-virile-fragrance-of-alpine-tor-vyl-wnanory}
+#### [[notes/t/the_sisters_of_mercy/vision_thing/more.md#the-virile-fragrance-of-alpine-tor-vyl-wnanory|The blowing breath of this fold]]
+#### [[notes/t/the_sisters_of_mercy/vision_thing/more.md#the-blowing-breath-of-this-fold-vyl-wnanory|That dreams me]]
 &nbsp;
-#### [[notes/t/type_o_negative/world_coming_down/everyone_i_love_is_dead.md#at-times-im-truly-terrified|Pervading every single nook of existence]]
+#### [[notes/t/type_o_negative/world_coming_down/everyone_i_love_is_dead.md#at-times-im-truly-terrified-vyl-wnanory|Pervading every single nook of existence]] {#pervading-every-single-nook-of-existence-vyl-wnanory}
 &nbsp;
-#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#these-days-are-strange-its-true|Veidon anatl]]
-#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#these-days-are-strange-its-true|Trireinos koilon monis pantos]]
-#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#these-days-are-strange-its-true|Volevos kaion moricos]]
-#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#these-days-are-strange-its-true|Ni t rsos tenkos sves n us-anatia]]
-#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#these-days-are-strange-its-true|In litavi  votno- r]]
-#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#these-days-are-strange-its-true|M  anatl]]
+#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#these-days-are-strange-its-true-vyl-wnanory|Veidon anatl]] {#veidon-anatl-vyl-wnanory}
+#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#veidon-anatl-vyl-wnanory|Trireinos koilon monis pantos]]
+#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#trireinos-koilon-monis-pantos-vyl-wnanory|Volevos kaion moricos]]
+#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#volevos-kaion-moricos-vyl-wnanory|Ni t rsos tenkos sves n us-anatia]]
+#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#ni-t-rsos-tenkos-sves-n-usanatia-vyl-wnanory|In litavi  votno- r]]
+#### [[notes/s/sum_41/screaming_bloody_murder/screaming_bloody_murder.md#in-litavi--votno-r-vyl-wnanory|M  anatl]]
 &nbsp;
-#### [[notes/g/godhead/power_tool_stigmata/fucked_up.md#every-time-you-go-to-sleep|Qe teb  lama deivos skver-ollos]]
-#### [[notes/g/godhead/power_tool_stigmata/fucked_up.md#every-time-you-go-to-sleep|Qe teb  lama deivos m  anatl]]
+#### [[notes/g/godhead/power_tool_stigmata/fucked_up.md#every-time-you-go-to-sleep-vyl-wnanory|Qe teb  lama deivos skver-ollos]] {#qe-teb--lama-deivos-skverollos-vyl-wnanory}
+#### [[notes/g/godhead/power_tool_stigmata/fucked_up.md#qe-teb--lama-deivos-skverollos-vyl-wnanory|Qe teb  lama deivos m  anatl]]
 &nbsp;
-#### [[notes/t/the_who/whos_next/behind_blue_eyes.md#but-my-dreams|Laden with the burdens of this life]]
-#### [[notes/t/the_who/whos_next/behind_blue_eyes.md#but-my-dreams|The barque sails through endless waters]]
-#### [[notes/t/the_who/whos_next/behind_blue_eyes.md#but-my-dreams|Deep and dark]]
+#### [[notes/t/the_who/whos_next/behind_blue_eyes.md#but-my-dreams-vyl-wnanory|Laden with the burdens of this life]] {#laden-with-the-burdens-of-this-life-vyl-wnanory}
+#### [[notes/t/the_who/whos_next/behind_blue_eyes.md#laden-with-the-burdens-of-this-life-vyl-wnanory|The barque sails through endless waters]]
+#### [[notes/t/the_who/whos_next/behind_blue_eyes.md#the-barque-sails-through-endless-waters-vyl-wnanory|Deep and dark]]
 &nbsp;
-#### [[notes/l/la_dispute/wildlife/a_departure.md#just-like-that-everyday-kind|Yet gestated pristinely and free]]
-#### [[notes/l/la_dispute/wildlife/a_departure.md#just-like-that-everyday-kind|Escorting to the biding warmth]]
-#### [[notes/l/la_dispute/wildlife/a_departure.md#just-like-that-everyday-kind|Of the womb]]
+#### [[notes/l/la_dispute/wildlife/a_departure.md#just-like-that-everyday-kind-vyl-wnanory|Yet gestated pristinely and free]] {#yet-gestated-pristinely-and-free-vyl-wnanory}
+#### [[notes/l/la_dispute/wildlife/a_departure.md#yet-gestated-pristinely-and-free-vyl-wnanory|Escorting to the biding warmth]]
+#### [[notes/l/la_dispute/wildlife/a_departure.md#escorting-to-the-biding-warmth-vyl-wnanory|Of the womb]]
 &nbsp;
-#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#how-do-you-feel-that-is-the-question|"I am a bard do not vouchsafe my secrets to slaves]]
-#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#how-do-you-feel-that-is-the-question|I am a guide a judge if you sow you will labour"]]
+#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#how-do-you-feel-that-is-the-question-vyl-wnanory|"I am a bard do not vouchsafe my secrets to slaves]] {#i-am-a-bard-do-not-vouchsafe-my-secrets-to-slaves-vyl-wnanory}
+#### [[notes/s/stone_sour/come_whatever_may/through_glass.md#i-am-a-bard-do-not-vouchsafe-my-secrets-to-slaves-vyl-wnanory|I am a guide a judge if you sow you will labour"]]

@@ -5,36 +5,36 @@ tags:
 - Lost Forever ∕∕ Lost Together
 ---
 &nbsp;
-#### [[notes/s/stone_sour/come_whatever_may/reborn.md#i-am-all-there-is-to-know|Say what you like, I know what I am]]
-#### [[notes/s/stone_sour/come_whatever_may/reborn.md#i-am-all-there-is-to-know|Sometimes a flood starts with a leak in the dam]]
-#### [[notes/s/stone_sour/come_whatever_may/reborn.md#i-am-all-there-is-to-know|You said we'd never make a difference]]
-#### [[notes/s/stone_sour/come_whatever_may/reborn.md#i-am-all-there-is-to-know|Maybe this battle is to fight indifference?]]
+#### [[notes/s/stone_sour/come_whatever_may/reborn.md#i-am-all-there-is-to-know-vyl-wnanory|Say what you like, I know what I am]] {#say-what-you-like-i-know-what-i-am-vyl-wnanory}
+#### [[notes/s/stone_sour/come_whatever_may/reborn.md#say-what-you-like-i-know-what-i-am-vyl-wnanory|Sometimes a flood starts with a leak in the dam]]
+#### [[notes/s/stone_sour/come_whatever_may/reborn.md#sometimes-a-flood-starts-with-a-leak-in-the-dam-vyl-wnanory|You said we'd never make a difference]]
+#### [[notes/s/stone_sour/come_whatever_may/reborn.md#you-said-wed-never-make-a-difference-vyl-wnanory|Maybe this battle is to fight indifference?]]
 &nbsp;
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-days-between-the-past-and-the-pain|Naysayer]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-days-between-the-past-and-the-pain-vyl-wnanory|Naysayer]] {#naysayer-vyl-wnanory}
 &nbsp;
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|Naysayer, hammer the nail]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|We're all on our own, we can't decide what's true]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|Betrayer, hammer the nail]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|Such narrow lines separate me and you]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain-vyl-wnanory|Naysayer, hammer the nail]] {#naysayer-hammer-the-nail-vyl-wnanory}
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#naysayer-hammer-the-nail-vyl-wnanory|We're all on our own, we can't decide what's true]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#were-all-on-our-own-we-cant-decide-whats-true-vyl-wnanory|Betrayer, hammer the nail]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#betrayer-hammer-the-nail-vyl-wnanory|Such narrow lines separate me and you]]
 &nbsp;
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|So sick of the sound of people giving up]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|You can't stop me giving a fuck]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|Fuck it, I'm a dreamer and I'm dreaming on]]
-#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain|Fuck it, I'm a dreamer and I'm dreaming on]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#i-remember-the-day-between-the-past-and-the-pain-vyl-wnanory|So sick of the sound of people giving up]] {#so-sick-of-the-sound-of-people-giving-up-vyl-wnanory}
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#so-sick-of-the-sound-of-people-giving-up-vyl-wnanory|You can't stop me giving a fuck]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#you-cant-stop-me-giving-a-fuck-vyl-wnanory|Fuck it, I'm a dreamer and I'm dreaming on]]
+#### [[notes/w/we_came_as_romans/the_world_i_used_to_know/the_world_i_used_to_know.md#fuck-it-im-a-dreamer-and-im-dreaming-on-vyl-wnanory|Fuck it, I'm a dreamer and I'm dreaming on]]
 &nbsp;
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me|With every concession, another piece of us dies]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me|Will we fight for nothing if not our lives?]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me|Apathy is our new messiah]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me|Only He could let things get so dire]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me-vyl-wnanory|With every concession, another piece of us dies]] {#with-every-concession-another-piece-of-us-dies-vyl-wnanory}
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#with-every-concession-another-piece-of-us-dies-vyl-wnanory|Will we fight for nothing if not our lives?]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#will-we-fight-for-nothing-if-not-our-lives-vyl-wnanory|Apathy is our new messiah]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#apathy-is-our-new-messiah-vyl-wnanory|Only He could let things get so dire]]
 &nbsp;
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me|All the messengers found knives in their backs]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me|Apathy is our new messiah]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me|The word made flesh, you can't fight fire with fire]]
-#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me|All the messengers found knives in their backs]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#this-is-what-i-see-emptiness-in-me-vyl-wnanory|All the messengers found knives in their backs]] {#all-the-messengers-found-knives-in-their-backs-vyl-wnanory}
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#all-the-messengers-found-knives-in-their-backs-vyl-wnanory|Apathy is our new messiah]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#apathy-is-our-new-messiah-vyl-wnanory|The word made flesh, you can't fight fire with fire]]
+#### [[notes/d/dead_by_april/dead_by_april/erased.md#the-word-made-flesh-you-cant-fight-fire-with-fire-vyl-wnanory|All the messengers found knives in their backs]]
 &nbsp;
-#### [[notes/b/breaking_benjamin/phobia/you_fight_me.md#you-fight-me|I know it haunts you; it haunts me too]]
-#### [[notes/b/breaking_benjamin/phobia/you_fight_me.md#you-fight-me|We're all on our own, we can't decide what's true]]
-#### [[notes/b/breaking_benjamin/phobia/you_fight_me.md#you-fight-me|Why are we fighting, when I'm just like you?]]
+#### [[notes/b/breaking_benjamin/phobia/you_fight_me.md#you-fight-me-vyl-wnanory|I know it haunts you; it haunts me too]] {#i-know-it-haunts-you-it-haunts-me-too-vyl-wnanory}
+#### [[notes/b/breaking_benjamin/phobia/you_fight_me.md#i-know-it-haunts-you-it-haunts-me-too-vyl-wnanory|We're all on our own, we can't decide what's true]]
+#### [[notes/b/breaking_benjamin/phobia/you_fight_me.md#were-all-on-our-own-we-cant-decide-whats-true-vyl-wnanory|Why are we fighting, when I'm just like you?]]
 &nbsp;
 #### Naysayer
 &nbsp;
@@ -48,5 +48,5 @@ tags:
 #### Fuck it, I'm a dreamer and I'm dreaming on
 #### Fuck it, I'm a dreamer and I'm dreaming on
 &nbsp;
-#### [[notes/r/rise_against/the_black_market/zero_visibility.md#and-the-world-works-in-ways-that-i-never-have-claimed-to-know|Apathy is the new messiah]]
-#### [[notes/r/rise_against/the_black_market/zero_visibility.md#and-the-world-works-in-ways-that-i-never-have-claimed-to-know|The word made flesh, you can't fight fire with fire]]
+#### [[notes/r/rise_against/the_black_market/zero_visibility.md#and-the-world-works-in-ways-that-i-never-have-claimed-to-know-vyl-wnanory|Apathy is the new messiah]] {#apathy-is-the-new-messiah-vyl-wnanory}
+#### [[notes/r/rise_against/the_black_market/zero_visibility.md#apathy-is-the-new-messiah-vyl-wnanory|The word made flesh, you can't fight fire with fire]]

@@ -5,4 +5,4 @@ tags:
 - Phobia
 ---
 &nbsp;
-#### [[notes/t/the_prodigy/invaders_must_die/omen.md#its-an-omen|(Announcements in an airport)]]
+#### [[notes/t/the_prodigy/invaders_must_die/omen.md#its-an-omen-vyl-wnanory|(Announcements in an airport)]] {#announcements-in-an-airport-vyl-wnanory}

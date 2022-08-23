@@ -5,91 +5,91 @@ tags:
 - Cyberpunk
 ---
 &nbsp;
-#### [[notes/p/porcupine_tree/in_absentia/strip_the_soul.md#do-you-want-a-western-home-in-the-rubble|(Do you want to be hypnotized?)]]
+#### [[notes/p/porcupine_tree/in_absentia/strip_the_soul.md#do-you-want-a-western-home-in-the-rubble-vyl-wnanory|(Do you want to be hypnotized?)]] {#do-you-want-to-be-hypnotized-vyl-wnanory}
 &nbsp;
-#### [[notes/t/the_last_internationale/we_will_reign/baby_its_you.md#its-not-the-way-you-smile-that-touched-my-heart|(All you have to do is move your body]]
-#### [[notes/t/the_last_internationale/we_will_reign/baby_its_you.md#its-not-the-way-you-smile-that-touched-my-heart|In what ever way feels comfortable for you)]]
+#### [[notes/t/the_last_internationale/we_will_reign/baby_its_you.md#its-not-the-way-you-smile-that-touched-my-heart-vyl-wnanory|(All you have to do is move your body]] {#all-you-have-to-do-is-move-your-body-vyl-wnanory}
+#### [[notes/t/the_last_internationale/we_will_reign/baby_its_you.md#all-you-have-to-do-is-move-your-body-vyl-wnanory|In what ever way feels comfortable for you)]]
 &nbsp;
-#### [[notes/p/parkway_drive/atlas/the_river.md#sink-into-me|(Just let yourself sink into the groove]]
-#### [[notes/p/parkway_drive/atlas/the_river.md#sink-into-me|And move)]]
+#### [[notes/p/parkway_drive/atlas/the_river.md#sink-into-me-vyl-wnanory|(Just let yourself sink into the groove]] {#just-let-yourself-sink-into-the-groove-vyl-wnanory}
+#### [[notes/p/parkway_drive/atlas/the_river.md#just-let-yourself-sink-into-the-groove-vyl-wnanory|And move)]]
 &nbsp;
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|(Fix your eyes on a spot]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|It doesn't matter where]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Just fix your eyes on one spot]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|And begin to relax)]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true-vyl-wnanory|(Fix your eyes on a spot]] {#fix-your-eyes-on-a-spot-vyl-wnanory}
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#fix-your-eyes-on-a-spot-vyl-wnanory|It doesn't matter where]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#it-doesnt-matter-where-vyl-wnanory|Just fix your eyes on one spot]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#just-fix-your-eyes-on-one-spot-vyl-wnanory|And begin to relax)]]
 &nbsp;
-#### [[notes/k/kelli_ali/teardrop_hittin_the_ground/lucifer_rising.md#down-down-down-down-down-down-down-down|(Feel your mind and body]]
-#### [[notes/k/kelli_ali/teardrop_hittin_the_ground/lucifer_rising.md#down-down-down-down-down-down-down-down|Beginning to wind down]]
-#### [[notes/k/kelli_ali/teardrop_hittin_the_ground/lucifer_rising.md#down-down-down-down-down-down-down-down|Wind down, wind down]]
-#### [[notes/k/kelli_ali/teardrop_hittin_the_ground/lucifer_rising.md#down-down-down-down-down-down-down-down|And relax)]]
+#### [[notes/k/kelli_ali/teardrop_hittin_the_ground/lucifer_rising.md#down-down-down-down-down-down-down-down-vyl-wnanory|(Feel your mind and body]] {#feel-your-mind-and-body-vyl-wnanory}
+#### [[notes/k/kelli_ali/teardrop_hittin_the_ground/lucifer_rising.md#feel-your-mind-and-body-vyl-wnanory|Beginning to wind down]]
+#### [[notes/k/kelli_ali/teardrop_hittin_the_ground/lucifer_rising.md#beginning-to-wind-down-vyl-wnanory|Wind down, wind down]]
+#### [[notes/k/kelli_ali/teardrop_hittin_the_ground/lucifer_rising.md#wind-down-wind-down-vyl-wnanory|And relax)]]
 &nbsp;
-#### [[notes/i/inxs/kick/never_tear_us_apart.md#i-dont-ask-me|(If you have any thoughts]]
-#### [[notes/i/inxs/kick/never_tear_us_apart.md#i-dont-ask-me|Just let them drift through your mind]]
-#### [[notes/i/inxs/kick/never_tear_us_apart.md#i-dont-ask-me|Like beautiful clouds]]
-#### [[notes/i/inxs/kick/never_tear_us_apart.md#i-dont-ask-me|Across a clear blue sky)]]
+#### [[notes/i/inxs/kick/never_tear_us_apart.md#i-dont-ask-me-vyl-wnanory|(If you have any thoughts]] {#if-you-have-any-thoughts-vyl-wnanory}
+#### [[notes/i/inxs/kick/never_tear_us_apart.md#if-you-have-any-thoughts-vyl-wnanory|Just let them drift through your mind]]
+#### [[notes/i/inxs/kick/never_tear_us_apart.md#just-let-them-drift-through-your-mind-vyl-wnanory|Like beautiful clouds]]
+#### [[notes/i/inxs/kick/never_tear_us_apart.md#like-beautiful-clouds-vyl-wnanory|Across a clear blue sky)]]
 &nbsp;
-#### [[notes/s/stone_sour/come_whatever_may/sillyworld.md#peace-is-just-two-fingers-now-peace-was-just-a-face|(Just through your mind and away from you]]
-#### [[notes/s/stone_sour/come_whatever_may/sillyworld.md#peace-is-just-two-fingers-now-peace-was-just-a-face|Through your mind and away]]
-#### [[notes/s/stone_sour/come_whatever_may/sillyworld.md#peace-is-just-two-fingers-now-peace-was-just-a-face|As you relax]]
-#### [[notes/s/stone_sour/come_whatever_may/sillyworld.md#peace-is-just-two-fingers-now-peace-was-just-a-face|Deeper, deeper and deeper relax)]]
+#### [[notes/s/stone_sour/come_whatever_may/sillyworld.md#peace-is-just-two-fingers-now-peace-was-just-a-face-vyl-wnanory|(Just through your mind and away from you]] {#just-through-your-mind-and-away-from-you-vyl-wnanory}
+#### [[notes/s/stone_sour/come_whatever_may/sillyworld.md#just-through-your-mind-and-away-from-you-vyl-wnanory|Through your mind and away]]
+#### [[notes/s/stone_sour/come_whatever_may/sillyworld.md#through-your-mind-and-away-vyl-wnanory|As you relax]]
+#### [[notes/s/stone_sour/come_whatever_may/sillyworld.md#as-you-relax-vyl-wnanory|Deeper, deeper and deeper relax)]]
 &nbsp;
-#### [[notes/t/tool/lateralus/the_grudge.md#let-go|(Just let go of stress and tension]]
-#### [[notes/t/tool/lateralus/the_grudge.md#let-go|Let go of worry and doubt]]
-#### [[notes/t/tool/lateralus/the_grudge.md#let-go|And relax)]]
+#### [[notes/t/tool/lateralus/the_grudge.md#let-go-vyl-wnanory|(Just let go of stress and tension]] {#just-let-go-of-stress-and-tension-vyl-wnanory}
+#### [[notes/t/tool/lateralus/the_grudge.md#just-let-go-of-stress-and-tension-vyl-wnanory|Let go of worry and doubt]]
+#### [[notes/t/tool/lateralus/the_grudge.md#let-go-of-worry-and-doubt-vyl-wnanory|And relax)]]
 &nbsp;
-#### [[notes/e/electric_six/kill/escape_from_ohio.md#they-say-that-what-you-gives-what-youre-gonna-get|(Imagine a staircase standing in front of you]]
-#### [[notes/e/electric_six/kill/escape_from_ohio.md#they-say-that-what-you-gives-what-youre-gonna-get|With ten, wide, safe, stairs]]
-#### [[notes/e/electric_six/kill/escape_from_ohio.md#they-say-that-what-you-gives-what-youre-gonna-get|Down, down to perfect relaxation]]
-#### [[notes/e/electric_six/kill/escape_from_ohio.md#they-say-that-what-you-gives-what-youre-gonna-get|Down to peace and contentment]]
-#### [[notes/e/electric_six/kill/escape_from_ohio.md#they-say-that-what-you-gives-what-youre-gonna-get|Down towards the happiness that you deserve)]]
+#### [[notes/e/electric_six/kill/escape_from_ohio.md#they-say-that-what-you-gives-what-youre-gonna-get-vyl-wnanory|(Imagine a staircase standing in front of you]] {#imagine-a-staircase-standing-in-front-of-you-vyl-wnanory}
+#### [[notes/e/electric_six/kill/escape_from_ohio.md#imagine-a-staircase-standing-in-front-of-you-vyl-wnanory|With ten, wide, safe, stairs]]
+#### [[notes/e/electric_six/kill/escape_from_ohio.md#with-ten-wide-safe-stairs-vyl-wnanory|Down, down to perfect relaxation]]
+#### [[notes/e/electric_six/kill/escape_from_ohio.md#down-down-to-perfect-relaxation-vyl-wnanory|Down to peace and contentment]]
+#### [[notes/e/electric_six/kill/escape_from_ohio.md#down-to-peace-and-contentment-vyl-wnanory|Down towards the happiness that you deserve)]]
 &nbsp;
-#### [[notes/t/three_days_grace/life_starts_now/lost_in_you.md#you-tried-to-lie-and-say-i-was-everything|(And as I count down from ten]]
-#### [[notes/t/three_days_grace/life_starts_now/lost_in_you.md#you-tried-to-lie-and-say-i-was-everything|Take one step with each number]]
-#### [[notes/t/three_days_grace/life_starts_now/lost_in_you.md#you-tried-to-lie-and-say-i-was-everything|One step down)]]
+#### [[notes/t/three_days_grace/life_starts_now/lost_in_you.md#you-tried-to-lie-and-say-i-was-everything-vyl-wnanory|(And as I count down from ten]] {#and-as-i-count-down-from-ten-vyl-wnanory}
+#### [[notes/t/three_days_grace/life_starts_now/lost_in_you.md#and-as-i-count-down-from-ten-vyl-wnanory|Take one step with each number]]
+#### [[notes/t/three_days_grace/life_starts_now/lost_in_you.md#take-one-step-with-each-number-vyl-wnanory|One step down)]]
 &nbsp;
-#### [[notes/d/dead_by_april/incomparable/you_should_know.md#dont-tell-me-to-to-let-go-of-you|(Ten, nine, eight, seven, six, five, four, three, two, one]]
-#### [[notes/d/dead_by_april/incomparable/you_should_know.md#dont-tell-me-to-to-let-go-of-you|Deeper, deeper, deeper relaxed]]
-#### [[notes/d/dead_by_april/incomparable/you_should_know.md#dont-tell-me-to-to-let-go-of-you|That's it, just let go and relax)]]
+#### [[notes/d/dead_by_april/incomparable/you_should_know.md#dont-tell-me-to-to-let-go-of-you-vyl-wnanory|(Ten, nine, eight, seven, six, five, four, three, two, one]] {#ten-nine-eight-seven-six-five-four-three-two-one-vyl-wnanory}
+#### [[notes/d/dead_by_april/incomparable/you_should_know.md#ten-nine-eight-seven-six-five-four-three-two-one-vyl-wnanory|Deeper, deeper, deeper relaxed]]
+#### [[notes/d/dead_by_april/incomparable/you_should_know.md#deeper-deeper-deeper-relaxed-vyl-wnanory|That's it, just let go and relax)]]
 &nbsp;
-#### [[notes/p/panic_at_the_disco/vices__virtues/memories.md#oh-memories-whered-you-go|You've stolen my heart, it's true]]
-#### [[notes/p/panic_at_the_disco/vices__virtues/memories.md#oh-memories-whered-you-go|You see the shape of things to come]]
-#### [[notes/p/panic_at_the_disco/vices__virtues/memories.md#oh-memories-whered-you-go|Why give up our lives to the brutes and fools]]
-#### [[notes/p/panic_at_the_disco/vices__virtues/memories.md#oh-memories-whered-you-go|Ah, tear it all apart]]
+#### [[notes/p/panic_at_the_disco/vices__virtues/memories.md#oh-memories-whered-you-go-vyl-wnanory|You've stolen my heart, it's true]] {#youve-stolen-my-heart-its-true-vyl-wnanory}
+#### [[notes/p/panic_at_the_disco/vices__virtues/memories.md#youve-stolen-my-heart-its-true-vyl-wnanory|You see the shape of things to come]]
+#### [[notes/p/panic_at_the_disco/vices__virtues/memories.md#you-see-the-shape-of-things-to-come-vyl-wnanory|Why give up our lives to the brutes and fools]]
+#### [[notes/p/panic_at_the_disco/vices__virtues/memories.md#why-give-up-our-lives-to-the-brutes-and-fools-vyl-wnanory|Ah, tear it all apart]]
 &nbsp;
-#### [[notes/l/la_dispute/rooms_of_the_house/for_mayor_in_splitsville.md#its-funny-what-things-come-back|You see the shape of things to come]]
+#### [[notes/l/la_dispute/rooms_of_the_house/for_mayor_in_splitsville.md#its-funny-what-things-come-back-vyl-wnanory|You see the shape of things to come]] {#you-see-the-shape-of-things-to-come-vyl-wnanory}
 &nbsp;
-#### [[notes/s/skinny_puppy/bites/last_call.md#they-will-kill-you|Why this now, girl?]]
-#### [[notes/s/skinny_puppy/bites/last_call.md#they-will-kill-you|Will we kill each other?]]
+#### [[notes/s/skinny_puppy/bites/last_call.md#they-will-kill-you-vyl-wnanory|Why this now, girl?]] {#why-this-now-girl-vyl-wnanory}
+#### [[notes/s/skinny_puppy/bites/last_call.md#why-this-now-girl-vyl-wnanory|Will we kill each other?]]
 &nbsp;
-#### [[notes/p/parcels/parcels/lightenup.md#every-eye-is-on-us|Like Adam in chains]]
-#### [[notes/p/parcels/parcels/lightenup.md#every-eye-is-on-us|I want revenge]]
-#### [[notes/p/parcels/parcels/lightenup.md#every-eye-is-on-us|Like Adam in chains]]
-#### [[notes/p/parcels/parcels/lightenup.md#every-eye-is-on-us|I want revenge]]
-#### [[notes/p/parcels/parcels/lightenup.md#every-eye-is-on-us|Adam in chains]]
+#### [[notes/p/parcels/parcels/lightenup.md#every-eye-is-on-us-vyl-wnanory|Like Adam in chains]] {#like-adam-in-chains-vyl-wnanory}
+#### [[notes/p/parcels/parcels/lightenup.md#like-adam-in-chains-vyl-wnanory|I want revenge]]
+#### [[notes/p/parcels/parcels/lightenup.md#i-want-revenge-vyl-wnanory|Like Adam in chains]]
+#### [[notes/p/parcels/parcels/lightenup.md#like-adam-in-chains-vyl-wnanory|I want revenge]]
+#### [[notes/p/parcels/parcels/lightenup.md#i-want-revenge-vyl-wnanory|Adam in chains]]
 &nbsp;
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene|They've broken your heart]]
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene|Ah yeah, they're gonna tear your world apart]]
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene|Why make up a lie]]
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene|And believe it's true?]]
-#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene|Ah, tear it all apart]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#maybe-your-heaven-is-that-norman-rockwell-scene-vyl-wnanory|They've broken your heart]] {#theyve-broken-your-heart-vyl-wnanory}
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#theyve-broken-your-heart-vyl-wnanory|Ah yeah, they're gonna tear your world apart]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#ah-yeah-theyre-gonna-tear-your-world-apart-vyl-wnanory|Why make up a lie]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#why-make-up-a-lie-vyl-wnanory|And believe it's true?]]
+#### [[notes/p/pianos_become_the_teeth/the_lack_long_after/ill_be_damned.md#and-believe-its-true-vyl-wnanory|Ah, tear it all apart]]
 &nbsp;
-#### [[notes/p/placebo/without_you_im_nothing/every_you_every_me.md#in-the-shape-of-things-to-come|I know the shape of things to come]]
+#### [[notes/p/placebo/without_you_im_nothing/every_you_every_me.md#in-the-shape-of-things-to-come-vyl-wnanory|I know the shape of things to come]] {#i-know-the-shape-of-things-to-come-vyl-wnanory}
 &nbsp;
-#### [[notes/w/we_came_as_romans/i_knew_you_were_trouble/i_knew_you_were_trouble.md#no-apologies-shell-never-see-you-cry|Why this now, girl?]]
-#### [[notes/w/we_came_as_romans/i_knew_you_were_trouble/i_knew_you_were_trouble.md#no-apologies-shell-never-see-you-cry|Oh, will we murder each other?]]
+#### [[notes/w/we_came_as_romans/i_knew_you_were_trouble/i_knew_you_were_trouble.md#no-apologies-shell-never-see-you-cry-vyl-wnanory|Why this now, girl?]]
+#### [[notes/w/we_came_as_romans/i_knew_you_were_trouble/i_knew_you_were_trouble.md#why-this-now-girl-vyl-wnanory|Oh, will we murder each other?]]
 &nbsp;
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|Like Adam in chains]]
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|I want revenge]]
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|Like Adam in chains]]
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|I want revenge]]
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|Like Adam in chains]]
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|I want revenge]]
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|Want revenge]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream-vyl-wnanory|Like Adam in chains]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#like-adam-in-chains-vyl-wnanory|I want revenge]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-want-revenge-vyl-wnanory|Like Adam in chains]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#like-adam-in-chains-vyl-wnanory|I want revenge]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-want-revenge-vyl-wnanory|Like Adam in chains]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#like-adam-in-chains-vyl-wnanory|I want revenge]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-want-revenge-vyl-wnanory|Want revenge]]
 &nbsp;
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|In the mind of a madman]]
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|There are colour explosions]]
-#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream|An eclipse of emotion]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#i-dont-know-whats-worth-fighting-for-or-why-i-have-to-scream-vyl-wnanory|In the mind of a madman]] {#in-the-mind-of-a-madman-vyl-wnanory}
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#in-the-mind-of-a-madman-vyl-wnanory|There are colour explosions]]
+#### [[notes/l/linkin_park/meteora/breaking_the_habit.md#there-are-colour-explosions-vyl-wnanory|An eclipse of emotion]]
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/break.md#i-see-all-i-can-see|Why tear our world apart?]]
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/break.md#i-see-all-i-can-see|Why tear it all apart?]]
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/break.md#i-see-all-i-can-see|Why tear our world apart, girl?]]
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/break.md#i-see-all-i-can-see-vyl-wnanory|Why tear our world apart?]] {#why-tear-our-world-apart-vyl-wnanory}
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/break.md#why-tear-our-world-apart-vyl-wnanory|Why tear it all apart?]]
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/break.md#why-tear-it-all-apart-vyl-wnanory|Why tear our world apart, girl?]]

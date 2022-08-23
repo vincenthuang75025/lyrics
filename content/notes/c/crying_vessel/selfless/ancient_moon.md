@@ -5,16 +5,16 @@ tags:
 - Selfless
 ---
 &nbsp;
-#### [[notes/p/portishead/dummy/roads.md#how-can-it-feel-this-wrong|I can feel something, pulling on me, from another world.]]
-#### [[notes/p/portishead/dummy/roads.md#how-can-it-feel-this-wrong|I can feel something, holding to me, from this universe.]]
+#### [[notes/p/portishead/dummy/roads.md#how-can-it-feel-this-wrong-vyl-wnanory|I can feel something, pulling on me, from another world.]] {#i-can-feel-something-pulling-on-me-from-another-world-vyl-wnanory}
+#### [[notes/p/portishead/dummy/roads.md#i-can-feel-something-pulling-on-me-from-another-world-vyl-wnanory|I can feel something, holding to me, from this universe.]]
 &nbsp;
-#### [[notes/m/ministry/dark_side_of_the_spoon/kaif.md#i-cant-remember-how-it-end|It's heavy, it's lovely,]]
-#### [[notes/m/ministry/dark_side_of_the_spoon/kaif.md#i-cant-remember-how-it-end|Something you can't touch.]]
-#### [[notes/m/ministry/dark_side_of_the_spoon/kaif.md#i-cant-remember-how-it-end|It's bleeding inside me,]]
-#### [[notes/m/ministry/dark_side_of_the_spoon/kaif.md#i-cant-remember-how-it-end|It's falling in love.]]
+#### [[notes/m/ministry/dark_side_of_the_spoon/kaif.md#i-cant-remember-how-it-end-vyl-wnanory|It's heavy, it's lovely,]] {#its-heavy-its-lovely-vyl-wnanory}
+#### [[notes/m/ministry/dark_side_of_the_spoon/kaif.md#its-heavy-its-lovely-vyl-wnanory|Something you can't touch.]]
+#### [[notes/m/ministry/dark_side_of_the_spoon/kaif.md#something-you-cant-touch-vyl-wnanory|It's bleeding inside me,]]
+#### [[notes/m/ministry/dark_side_of_the_spoon/kaif.md#its-bleeding-inside-me-vyl-wnanory|It's falling in love.]]
 &nbsp;
-#### [[notes/m/manufacture/terrorvision/as_the_end_draws_near.md#you-and-me-we-stand-alone|I can see someone, calling for me, from the other room.]]
-#### [[notes/m/manufacture/terrorvision/as_the_end_draws_near.md#you-and-me-we-stand-alone|If I could be someone, beyond this sea, under the ancient moon.]]
+#### [[notes/m/manufacture/terrorvision/as_the_end_draws_near.md#you-and-me-we-stand-alone-vyl-wnanory|I can see someone, calling for me, from the other room.]] {#i-can-see-someone-calling-for-me-from-the-other-room-vyl-wnanory}
+#### [[notes/m/manufacture/terrorvision/as_the_end_draws_near.md#i-can-see-someone-calling-for-me-from-the-other-room-vyl-wnanory|If I could be someone, beyond this sea, under the ancient moon.]]
 &nbsp;
 #### It's heavy, it's lovely,
 #### Something you can't touch.
@@ -23,27 +23,27 @@ tags:
 &nbsp;
 #### Ah
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/mirrors/december.md#and-i-ask-myself|Ah  (ah-ah)]]
-#### [[notes/b/breakdown_of_sanity/mirrors/december.md#and-i-ask-myself|Oh]]
-#### [[notes/b/breakdown_of_sanity/mirrors/december.md#and-i-ask-myself|Oh  (ah-ah)]]
-#### [[notes/b/breakdown_of_sanity/mirrors/december.md#and-i-ask-myself|Oh  (oh)]]
-#### [[notes/b/breakdown_of_sanity/mirrors/december.md#and-i-ask-myself|Oh  (ah)]]
-#### [[notes/b/breakdown_of_sanity/mirrors/december.md#and-i-ask-myself|Oh  (ah)]]
+#### [[notes/b/breakdown_of_sanity/mirrors/december.md#and-i-ask-myself-vyl-wnanory|Ah  (ah-ah)]] {#ah--ahah-vyl-wnanory}
+#### [[notes/b/breakdown_of_sanity/mirrors/december.md#ah--ahah-vyl-wnanory|Oh]]
+#### [[notes/b/breakdown_of_sanity/mirrors/december.md#oh-vyl-wnanory|Oh  (ah-ah)]]
+#### [[notes/b/breakdown_of_sanity/mirrors/december.md#oh--ahah-vyl-wnanory|Oh  (oh)]]
+#### [[notes/b/breakdown_of_sanity/mirrors/december.md#oh--oh-vyl-wnanory|Oh  (ah)]]
+#### [[notes/b/breakdown_of_sanity/mirrors/december.md#oh--ah-vyl-wnanory|Oh  (ah)]]
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/perception/cardiac_silhouette.md#was-it-me-that-ended-our-dreams|It's heavy, it's lovely,]]
-#### [[notes/b/breakdown_of_sanity/perception/cardiac_silhouette.md#was-it-me-that-ended-our-dreams|It's something you can't touch.]]
-#### [[notes/b/breakdown_of_sanity/perception/cardiac_silhouette.md#was-it-me-that-ended-our-dreams|It's bleeding inside me,]]
-#### [[notes/b/breakdown_of_sanity/perception/cardiac_silhouette.md#was-it-me-that-ended-our-dreams|Falling in love.]]
+#### [[notes/b/breakdown_of_sanity/perception/cardiac_silhouette.md#was-it-me-that-ended-our-dreams-vyl-wnanory|It's heavy, it's lovely,]]
+#### [[notes/b/breakdown_of_sanity/perception/cardiac_silhouette.md#its-heavy-its-lovely-vyl-wnanory|It's something you can't touch.]]
+#### [[notes/b/breakdown_of_sanity/perception/cardiac_silhouette.md#its-something-you-cant-touch-vyl-wnanory|It's bleeding inside me,]]
+#### [[notes/b/breakdown_of_sanity/perception/cardiac_silhouette.md#its-bleeding-inside-me-vyl-wnanory|Falling in love.]]
 &nbsp;
-#### [[notes/o/opeth/black_water_park/bleak.md#devious-movements-in-your-eyes|Ah  (ah-ah-ah-ah)]]
-#### [[notes/o/opeth/black_water_park/bleak.md#devious-movements-in-your-eyes|Ah  (ah-ah)]]
-#### [[notes/o/opeth/black_water_park/bleak.md#devious-movements-in-your-eyes|Ah  (ah)]]
-#### [[notes/o/opeth/black_water_park/bleak.md#devious-movements-in-your-eyes|Oh  (ah-ah)]]
+#### [[notes/o/opeth/black_water_park/bleak.md#devious-movements-in-your-eyes-vyl-wnanory|Ah  (ah-ah-ah-ah)]] {#ah--ahahahah-vyl-wnanory}
+#### [[notes/o/opeth/black_water_park/bleak.md#ah--ahahahah-vyl-wnanory|Ah  (ah-ah)]]
+#### [[notes/o/opeth/black_water_park/bleak.md#ah--ahah-vyl-wnanory|Ah  (ah)]]
+#### [[notes/o/opeth/black_water_park/bleak.md#ah--ah-vyl-wnanory|Oh  (ah-ah)]]
 &nbsp;
-#### [[notes/a/archive/you_all_look_the_same_to_me/again.md#im-losing-you-again|(Oh-ah-ah)]]
-#### [[notes/a/archive/you_all_look_the_same_to_me/again.md#im-losing-you-again|(Oh-oh)]]
-#### [[notes/a/archive/you_all_look_the_same_to_me/again.md#im-losing-you-again|(Oh-ah)]]
-#### [[notes/a/archive/you_all_look_the_same_to_me/again.md#im-losing-you-again|(Oh-ah-ah)]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/again.md#im-losing-you-again-vyl-wnanory|(Oh-ah-ah)]] {#ohahah-vyl-wnanory}
+#### [[notes/a/archive/you_all_look_the_same_to_me/again.md#ohahah-vyl-wnanory|(Oh-oh)]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/again.md#ohoh-vyl-wnanory|(Oh-ah)]]
+#### [[notes/a/archive/you_all_look_the_same_to_me/again.md#ohah-vyl-wnanory|(Oh-ah-ah)]]
 &nbsp;
 #### (Oh-ah-ah)
 #### (Oh-oh)

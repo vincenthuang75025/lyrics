@@ -5,30 +5,30 @@ tags:
 - Greatest Hits, Vol. 1
 ---
 &nbsp;
-#### [[notes/a/a_day_to_remember/common_courtesy/violence_enough_is_enough.md#violence-give-me-violence|Something takes a part of me]]
-#### [[notes/a/a_day_to_remember/common_courtesy/violence_enough_is_enough.md#violence-give-me-violence|Something lost and never seen]]
-#### [[notes/a/a_day_to_remember/common_courtesy/violence_enough_is_enough.md#violence-give-me-violence|Every time I start to believe]]
-#### [[notes/a/a_day_to_remember/common_courtesy/violence_enough_is_enough.md#violence-give-me-violence|Something's raped and taken from me, from me]]
+#### [[notes/a/a_day_to_remember/common_courtesy/violence_enough_is_enough.md#violence-give-me-violence-vyl-wnanory|Something takes a part of me]] {#something-takes-a-part-of-me-vyl-wnanory}
+#### [[notes/a/a_day_to_remember/common_courtesy/violence_enough_is_enough.md#something-takes-a-part-of-me-vyl-wnanory|Something lost and never seen]]
+#### [[notes/a/a_day_to_remember/common_courtesy/violence_enough_is_enough.md#something-lost-and-never-seen-vyl-wnanory|Every time I start to believe]]
+#### [[notes/a/a_day_to_remember/common_courtesy/violence_enough_is_enough.md#every-time-i-start-to-believe-vyl-wnanory|Something's raped and taken from me, from me]]
 &nbsp;
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Life's got to always be messing with me]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Can't they chill and let me be free?]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Can't I take away all this pain?]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|I try to every night, all in vain, in vain]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true-vyl-wnanory|Life's got to always be messing with me]] {#lifes-got-to-always-be-messing-with-me-vyl-wnanory}
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#lifes-got-to-always-be-messing-with-me-vyl-wnanory|Can't they chill and let me be free?]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#cant-they-chill-and-let-me-be-free-vyl-wnanory|Can't I take away all this pain?]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#cant-i-take-away-all-this-pain-vyl-wnanory|I try to every night, all in vain, in vain]]
 &nbsp;
-#### [[notes/g/glenn_frey/you_belong_to_the_city/you_belong_to_the_city.md#you-can-feel-it|Sometimes I cannot take this place]]
-#### [[notes/g/glenn_frey/you_belong_to_the_city/you_belong_to_the_city.md#you-can-feel-it|Sometimes it's my life I can't taste]]
-#### [[notes/g/glenn_frey/you_belong_to_the_city/you_belong_to_the_city.md#you-can-feel-it|Sometimes I cannot feel my face]]
-#### [[notes/g/glenn_frey/you_belong_to_the_city/you_belong_to_the_city.md#you-can-feel-it|You'll never see me fall from grace]]
+#### [[notes/g/glenn_frey/you_belong_to_the_city/you_belong_to_the_city.md#you-can-feel-it-vyl-wnanory|Sometimes I cannot take this place]] {#sometimes-i-cannot-take-this-place-vyl-wnanory}
+#### [[notes/g/glenn_frey/you_belong_to_the_city/you_belong_to_the_city.md#sometimes-i-cannot-take-this-place-vyl-wnanory|Sometimes it's my life I can't taste]]
+#### [[notes/g/glenn_frey/you_belong_to_the_city/you_belong_to_the_city.md#sometimes-its-my-life-i-cant-taste-vyl-wnanory|Sometimes I cannot feel my face]]
+#### [[notes/g/glenn_frey/you_belong_to_the_city/you_belong_to_the_city.md#sometimes-i-cannot-feel-my-face-vyl-wnanory|You'll never see me fall from grace]]
 &nbsp;
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Something takes a part of me]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|You and I were meant to be]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|A cheap fuck for me to lay]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Something takes a part of me]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true-vyl-wnanory|Something takes a part of me]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#something-takes-a-part-of-me-vyl-wnanory|You and I were meant to be]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#you-and-i-were-meant-to-be-vyl-wnanory|A cheap fuck for me to lay]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#a-cheap-fuck-for-me-to-lay-vyl-wnanory|Something takes a part of me]]
 &nbsp;
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Feeling like a freak on a leash]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Feeling like I have no release]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|How many times have I felt diseased?]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Nothing in my life is free, is free]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true-vyl-wnanory|Feeling like a freak on a leash]] {#feeling-like-a-freak-on-a-leash-vyl-wnanory}
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#feeling-like-a-freak-on-a-leash-vyl-wnanory|Feeling like I have no release]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#feeling-like-i-have-no-release-vyl-wnanory|How many times have I felt diseased?]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#how-many-times-have-i-felt-diseased-vyl-wnanory|Nothing in my life is free, is free]]
 &nbsp;
 #### Sometimes I cannot take this place
 #### Sometimes it's my life I can't taste
@@ -40,38 +40,38 @@ tags:
 #### A cheap fuck for me to lay
 #### Something takes a part of me
 &nbsp;
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Take it over here, baby]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Da boom na da mmm dum na ema]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Da boom na da mmm dum na ema]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Da boom na da mmm dum na ema]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Da boom na da mmm dum na ema]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true-vyl-wnanory|Take it over here, baby]] {#take-it-over-here-baby-vyl-wnanory}
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#take-it-over-here-baby-vyl-wnanory|Da boom na da mmm dum na ema]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#da-boom-na-da-mmm-dum-na-ema-vyl-wnanory|Da boom na da mmm dum na ema]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#da-boom-na-da-mmm-dum-na-ema-vyl-wnanory|Da boom na da mmm dum na ema]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#da-boom-na-da-mmm-dum-na-ema-vyl-wnanory|Da boom na da mmm dum na ema]]
 &nbsp;
-#### [[notes/g/godhead/evolver/the_giveaway.md#now-you-see-your-time-is-done|Da boom na da mmm dum na ema]]
-#### [[notes/g/godhead/evolver/the_giveaway.md#now-you-see-your-time-is-done|Da boom na da mmm dum na ema]]
-#### [[notes/g/godhead/evolver/the_giveaway.md#now-you-see-your-time-is-done|Da boom na da mmm dum na ema]]
-#### [[notes/g/godhead/evolver/the_giveaway.md#now-you-see-your-time-is-done|Da boom na da mmm dum na ema]]
+#### [[notes/g/godhead/evolver/the_giveaway.md#now-you-see-your-time-is-done-vyl-wnanory|Da boom na da mmm dum na ema]] {#da-boom-na-da-mmm-dum-na-ema-vyl-wnanory}
+#### [[notes/g/godhead/evolver/the_giveaway.md#da-boom-na-da-mmm-dum-na-ema-vyl-wnanory|Da boom na da mmm dum na ema]]
+#### [[notes/g/godhead/evolver/the_giveaway.md#da-boom-na-da-mmm-dum-na-ema-vyl-wnanory|Da boom na da mmm dum na ema]]
+#### [[notes/g/godhead/evolver/the_giveaway.md#da-boom-na-da-mmm-dum-na-ema-vyl-wnanory|Da boom na da mmm dum na ema]]
 &nbsp;
-#### [[notes/s/slipknot/5__the_gray_chapter/the_burden.md#you-cant-save-me|So, fight something on the]]
-#### [[notes/s/slipknot/5__the_gray_chapter/the_burden.md#you-cant-save-me|Fight, somethings they fight]]
-#### [[notes/s/slipknot/5__the_gray_chapter/the_burden.md#you-cant-save-me|So, something on the]]
-#### [[notes/s/slipknot/5__the_gray_chapter/the_burden.md#you-cant-save-me|Fight, somethings they fight]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_burden.md#you-cant-save-me-vyl-wnanory|So, fight something on the]] {#so-fight-something-on-the-vyl-wnanory}
+#### [[notes/s/slipknot/5__the_gray_chapter/the_burden.md#so-fight-something-on-the-vyl-wnanory|Fight, somethings they fight]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_burden.md#fight-somethings-they-fight-vyl-wnanory|So, something on the]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_burden.md#so-something-on-the-vyl-wnanory|Fight, somethings they fight]]
 &nbsp;
-#### [[notes/a/avenged_sevenfold/nightmare/buried_alive.md#this-is-now-your-life-whats-it-feel-like|Fight, something of the]]
-#### [[notes/a/avenged_sevenfold/nightmare/buried_alive.md#this-is-now-your-life-whats-it-feel-like|No, somethings they fight]]
-#### [[notes/a/avenged_sevenfold/nightmare/buried_alive.md#this-is-now-your-life-whats-it-feel-like|Fight, something of the]]
-#### [[notes/a/avenged_sevenfold/nightmare/buried_alive.md#this-is-now-your-life-whats-it-feel-like|Fight, somethings they fight]]
+#### [[notes/a/avenged_sevenfold/nightmare/buried_alive.md#this-is-now-your-life-whats-it-feel-like-vyl-wnanory|Fight, something of the]] {#fight-something-of-the-vyl-wnanory}
+#### [[notes/a/avenged_sevenfold/nightmare/buried_alive.md#fight-something-of-the-vyl-wnanory|No, somethings they fight]]
+#### [[notes/a/avenged_sevenfold/nightmare/buried_alive.md#no-somethings-they-fight-vyl-wnanory|Fight, something of the]]
+#### [[notes/a/avenged_sevenfold/nightmare/buried_alive.md#fight-something-of-the-vyl-wnanory|Fight, somethings they fight]]
 &nbsp;
 #### Something takes a part of me
 #### You and I were meant to be
 #### A cheap fuck for me to lay
 #### Something takes a part of me
 &nbsp;
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
-#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the|Part of me]]
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#so-when-the-vyl-wnanory|Part of me]] {#part-of-me-vyl-wnanory}
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#part-of-me-vyl-wnanory|Part of me]]
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#part-of-me-vyl-wnanory|Part of me]]
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#part-of-me-vyl-wnanory|Part of me]]
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#part-of-me-vyl-wnanory|Part of me]]
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#part-of-me-vyl-wnanory|Part of me]]
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#part-of-me-vyl-wnanory|Part of me]]
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#part-of-me-vyl-wnanory|Part of me]]
+#### [[notes/b/billy_talent/afraid_of_heights/horses__chariots.md#part-of-me-vyl-wnanory|Part of me]]

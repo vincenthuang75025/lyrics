@@ -5,51 +5,51 @@ tags:
 - Terrorvision
 ---
 &nbsp;
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|(People of the Earth,]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|you are reconciled that this]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|is the last night of the world.)]]
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|[This is the last night of the world?]]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true-vyl-wnanory|(People of the Earth,]] {#people-of-the-earth-vyl-wnanory}
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#people-of-the-earth-vyl-wnanory|you are reconciled that this]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#you-are-reconciled-that-this-vyl-wnanory|is the last night of the world.)]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#is-the-last-night-of-the-world-vyl-wnanory|[This is the last night of the world?]]]
 &nbsp;
-#### [[notes/z/zanias/harmaline/harmaline.md#we-are-the-last-of-us|(People of the Earth,]]
-#### [[notes/z/zanias/harmaline/harmaline.md#we-are-the-last-of-us|you are reconciled that this]]
-#### [[notes/z/zanias/harmaline/harmaline.md#we-are-the-last-of-us|is the last night of the world.)]]
+#### [[notes/z/zanias/harmaline/harmaline.md#we-are-the-last-of-us-vyl-wnanory|(People of the Earth,]]
+#### [[notes/z/zanias/harmaline/harmaline.md#people-of-the-earth-vyl-wnanory|you are reconciled that this]]
+#### [[notes/z/zanias/harmaline/harmaline.md#you-are-reconciled-that-this-vyl-wnanory|is the last night of the world.)]]
 &nbsp;
-#### [[notes/g/girls_under_glass/nightmares/reach_for_the_stars.md#you-can-see-the-stars|This is it, we stand alone]]
-#### [[notes/g/girls_under_glass/nightmares/reach_for_the_stars.md#you-can-see-the-stars|We can see it all from here]]
+#### [[notes/g/girls_under_glass/nightmares/reach_for_the_stars.md#you-can-see-the-stars-vyl-wnanory|This is it, we stand alone]] {#this-is-it-we-stand-alone-vyl-wnanory}
+#### [[notes/g/girls_under_glass/nightmares/reach_for_the_stars.md#this-is-it-we-stand-alone-vyl-wnanory|We can see it all from here]]
 &nbsp;
-#### [[notes/t/the_cure/bloodflowers/39.md#but-theres-nothing-left-to-burn|The starless night across the mountainside]]
-#### [[notes/t/the_cure/bloodflowers/39.md#but-theres-nothing-left-to-burn|There's no one left to talk to]]
-#### [[notes/t/the_cure/bloodflowers/39.md#but-theres-nothing-left-to-burn|There's nothing left to say]]
+#### [[notes/t/the_cure/bloodflowers/39.md#but-theres-nothing-left-to-burn-vyl-wnanory|The starless night across the mountainside]] {#the-starless-night-across-the-mountainside-vyl-wnanory}
+#### [[notes/t/the_cure/bloodflowers/39.md#the-starless-night-across-the-mountainside-vyl-wnanory|There's no one left to talk to]]
+#### [[notes/t/the_cure/bloodflowers/39.md#theres-no-one-left-to-talk-to-vyl-wnanory|There's nothing left to say]]
 &nbsp;
-#### [[notes/g/girls_under_glass/nightmares/never_go.md#come-to-me|Into the valleys, the shadow of death]]
-#### [[notes/g/girls_under_glass/nightmares/never_go.md#come-to-me|Grieves silently across the darkened sea]]
+#### [[notes/g/girls_under_glass/nightmares/never_go.md#come-to-me-vyl-wnanory|Into the valleys, the shadow of death]] {#into-the-valleys-the-shadow-of-death-vyl-wnanory}
+#### [[notes/g/girls_under_glass/nightmares/never_go.md#into-the-valleys-the-shadow-of-death-vyl-wnanory|Grieves silently across the darkened sea]]
 &nbsp;
-#### [[notes/k/killswitch_engage/killswitch_engage/in_the_unblind.md#so-much-love-so-much-love-lost|(As the end draws near)]]
-#### [[notes/k/killswitch_engage/killswitch_engage/in_the_unblind.md#so-much-love-so-much-love-lost|You and me, we stand alone]]
-#### [[notes/k/killswitch_engage/killswitch_engage/in_the_unblind.md#so-much-love-so-much-love-lost|We can see it all from here]]
+#### [[notes/k/killswitch_engage/killswitch_engage/in_the_unblind.md#so-much-love-so-much-love-lost-vyl-wnanory|(As the end draws near)]] {#as-the-end-draws-near-vyl-wnanory}
+#### [[notes/k/killswitch_engage/killswitch_engage/in_the_unblind.md#as-the-end-draws-near-vyl-wnanory|You and me, we stand alone]]
+#### [[notes/k/killswitch_engage/killswitch_engage/in_the_unblind.md#you-and-me-we-stand-alone-vyl-wnanory|We can see it all from here]]
 &nbsp;
-#### [[notes/d/dead_when_i_found_her/all_the_way_down/downpour.md#desperate-to-win|Stretched far and wide]]
-#### [[notes/d/dead_when_i_found_her/all_the_way_down/downpour.md#desperate-to-win|The barren skies]]
-#### [[notes/d/dead_when_i_found_her/all_the_way_down/downpour.md#desperate-to-win|Fighting silence]]
-#### [[notes/d/dead_when_i_found_her/all_the_way_down/downpour.md#desperate-to-win|Deep inside]]
+#### [[notes/d/dead_when_i_found_her/all_the_way_down/downpour.md#desperate-to-win-vyl-wnanory|Stretched far and wide]] {#stretched-far-and-wide-vyl-wnanory}
+#### [[notes/d/dead_when_i_found_her/all_the_way_down/downpour.md#stretched-far-and-wide-vyl-wnanory|The barren skies]]
+#### [[notes/d/dead_when_i_found_her/all_the_way_down/downpour.md#the-barren-skies-vyl-wnanory|Fighting silence]]
+#### [[notes/d/dead_when_i_found_her/all_the_way_down/downpour.md#fighting-silence-vyl-wnanory|Deep inside]]
 &nbsp;
 #### Into the valleys, the shadow of death
 #### Grieves silently across the darkened sea
 &nbsp;
-#### [[notes/s/stray_from_the_path/rising_sun/death_beds.md#i-wont-lie-with-you-in-your-grave|(People of the Earth,]]
-#### [[notes/s/stray_from_the_path/rising_sun/death_beds.md#i-wont-lie-with-you-in-your-grave|you are reconciled]]
-#### [[notes/s/stray_from_the_path/rising_sun/death_beds.md#i-wont-lie-with-you-in-your-grave|that this is the last night of the world.)]]
-#### [[notes/s/stray_from_the_path/rising_sun/death_beds.md#i-wont-lie-with-you-in-your-grave|[This is the last night of the world?]]]
+#### [[notes/s/stray_from_the_path/rising_sun/death_beds.md#i-wont-lie-with-you-in-your-grave-vyl-wnanory|(People of the Earth,]]
+#### [[notes/s/stray_from_the_path/rising_sun/death_beds.md#people-of-the-earth-vyl-wnanory|you are reconciled]]
+#### [[notes/s/stray_from_the_path/rising_sun/death_beds.md#you-are-reconciled-vyl-wnanory|that this is the last night of the world.)]]
+#### [[notes/s/stray_from_the_path/rising_sun/death_beds.md#that-this-is-the-last-night-of-the-world-vyl-wnanory|[This is the last night of the world?]]]
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/mirrors/december.md#is-this-the-end|(As the end draws near)]]
+#### [[notes/b/breakdown_of_sanity/mirrors/december.md#is-this-the-end-vyl-wnanory|(As the end draws near)]]
 &nbsp;
-#### [[notes/g/girls_under_glass/nightmares/reach_for_the_stars.md#you-can-see-the-stars|You and me, we stand alone]]
-#### [[notes/g/girls_under_glass/nightmares/reach_for_the_stars.md#you-can-see-the-stars|We can see it all from here]]
+#### [[notes/g/girls_under_glass/nightmares/reach_for_the_stars.md#you-can-see-the-stars-vyl-wnanory|You and me, we stand alone]] {#you-and-me-we-stand-alone-vyl-wnanory}
+#### [[notes/g/girls_under_glass/nightmares/reach_for_the_stars.md#you-and-me-we-stand-alone-vyl-wnanory|We can see it all from here]]
 &nbsp;
-#### [[notes/g/godsmack/faceless/serenity.md#i-need-serenity-where-do-we-go-when-we-just-dont-know|Into the valleys, the shadow of death]]
-#### [[notes/g/godsmack/faceless/serenity.md#i-need-serenity-where-do-we-go-when-we-just-dont-know|Grieves silently, it's in you and me]]
+#### [[notes/g/godsmack/faceless/serenity.md#i-need-serenity-where-do-we-go-when-we-just-dont-know-vyl-wnanory|Into the valleys, the shadow of death]]
+#### [[notes/g/godsmack/faceless/serenity.md#into-the-valleys-the-shadow-of-death-vyl-wnanory|Grieves silently, it's in you and me]]
 &nbsp;
-#### [[notes/g/godsmack/faceless/serenity.md#i-need-serenity-where-do-we-go-when-we-just-dont-know|(As the end draws near)]]
-#### [[notes/g/godsmack/faceless/serenity.md#i-need-serenity-where-do-we-go-when-we-just-dont-know|Oh, it's in you and me]]
-#### [[notes/g/godsmack/faceless/serenity.md#i-need-serenity-where-do-we-go-when-we-just-dont-know|(As the end draws near)]]
-#### [[notes/g/godsmack/faceless/serenity.md#i-need-serenity-where-do-we-go-when-we-just-dont-know|Oh, it's in you and me]]
+#### [[notes/g/godsmack/faceless/serenity.md#i-need-serenity-where-do-we-go-when-we-just-dont-know-vyl-wnanory|(As the end draws near)]]
+#### [[notes/g/godsmack/faceless/serenity.md#as-the-end-draws-near-vyl-wnanory|Oh, it's in you and me]]
+#### [[notes/g/godsmack/faceless/serenity.md#oh-its-in-you-and-me-vyl-wnanory|(As the end draws near)]]
+#### [[notes/g/godsmack/faceless/serenity.md#as-the-end-draws-near-vyl-wnanory|Oh, it's in you and me]]

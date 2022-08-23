@@ -5,43 +5,43 @@ tags:
 - Cocked and Loaded
 ---
 &nbsp;
-#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#take-me-down-i-wanna-go-down|Hey kids]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#take-me-down-i-wanna-go-down|Prune tang's here]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#take-me-down-i-wanna-go-down|Oh, yeah!]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#take-me-down-i-wanna-go-down|She's all damn rich]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#take-me-down-i-wanna-go-down|Knows where to scratch me when I itch]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#take-me-down-i-wanna-go-down|She's a wrinkled little bitch]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#take-me-down-i-wanna-go-down|She sucks the chrome right off my trailer hitch]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#take-me-down-i-wanna-go-down-vyl-wnanory|Hey kids]] {#hey-kids-vyl-wnanory}
+#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#hey-kids-vyl-wnanory|Prune tang's here]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#prune-tangs-here-vyl-wnanory|Oh, yeah!]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#oh-yeah-vyl-wnanory|She's all damn rich]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#shes-all-damn-rich-vyl-wnanory|Knows where to scratch me when I itch]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#knows-where-to-scratch-me-when-i-itch-vyl-wnanory|She's a wrinkled little bitch]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/crimea.md#shes-a-wrinkled-little-bitch-vyl-wnanory|She sucks the chrome right off my trailer hitch]]
 &nbsp;
-#### [[notes/p/perturbator/i_am_the_night/naked_tongues_feat_memory_ghosts_isabella_goloversic.md#higher-higher|Prune tang!]]
-#### [[notes/p/perturbator/i_am_the_night/naked_tongues_feat_memory_ghosts_isabella_goloversic.md#higher-higher|(Prune tang)]]
+#### [[notes/p/perturbator/i_am_the_night/naked_tongues_feat_memory_ghosts_isabella_goloversic.md#higher-higher-vyl-wnanory|Prune tang!]] {#prune-tang-vyl-wnanory}
+#### [[notes/p/perturbator/i_am_the_night/naked_tongues_feat_memory_ghosts_isabella_goloversic.md#prune-tang-vyl-wnanory|(Prune tang)]]
 &nbsp;
-#### [[notes/a/a_day_to_remember/common_courtesy/sometimes_youre_the_hammer_sometimes_youre_the_nail.md#you-wanna-take-take-take-take-take-it-away-from-me|When she goes awry]]
-#### [[notes/a/a_day_to_remember/common_courtesy/sometimes_youre_the_hammer_sometimes_youre_the_nail.md#you-wanna-take-take-take-take-take-it-away-from-me|You find out quick there's no other way]]
-#### [[notes/a/a_day_to_remember/common_courtesy/sometimes_youre_the_hammer_sometimes_youre_the_nail.md#you-wanna-take-take-take-take-take-it-away-from-me|She's a one stop shop]]
-#### [[notes/a/a_day_to_remember/common_courtesy/sometimes_youre_the_hammer_sometimes_youre_the_nail.md#you-wanna-take-take-take-take-take-it-away-from-me|She's always open and ready to rock]]
+#### [[notes/a/a_day_to_remember/common_courtesy/sometimes_youre_the_hammer_sometimes_youre_the_nail.md#you-wanna-take-take-take-take-take-it-away-from-me-vyl-wnanory|When she goes awry]] {#when-she-goes-awry-vyl-wnanory}
+#### [[notes/a/a_day_to_remember/common_courtesy/sometimes_youre_the_hammer_sometimes_youre_the_nail.md#when-she-goes-awry-vyl-wnanory|You find out quick there's no other way]]
+#### [[notes/a/a_day_to_remember/common_courtesy/sometimes_youre_the_hammer_sometimes_youre_the_nail.md#you-find-out-quick-theres-no-other-way-vyl-wnanory|She's a one stop shop]]
+#### [[notes/a/a_day_to_remember/common_courtesy/sometimes_youre_the_hammer_sometimes_youre_the_nail.md#shes-a-one-stop-shop-vyl-wnanory|She's always open and ready to rock]]
 &nbsp;
-#### [[notes/s/seether/karma__effect/burrito.md#you-keep-taking-taking-away|My-my-my-my prune tang!]]
-#### [[notes/s/seether/karma__effect/burrito.md#you-keep-taking-taking-away|My-my-my (prune tang)]]
+#### [[notes/s/seether/karma__effect/burrito.md#you-keep-taking-taking-away-vyl-wnanory|My-my-my-my prune tang!]] {#mymymymy-prune-tang-vyl-wnanory}
+#### [[notes/s/seether/karma__effect/burrito.md#mymymymy-prune-tang-vyl-wnanory|My-my-my (prune tang)]]
 &nbsp;
 #### My-my-my-my prune tang!
 #### My-my-my (prune tang)
 &nbsp;
-#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#take-me-there|Miles and miles of duct tape]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#take-me-there|Couldn't match up my day]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#take-me-there|Nothing in this world but sweet prune tang]]
-#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#take-me-there|Could ever make me feel this way]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#take-me-there-vyl-wnanory|Miles and miles of duct tape]] {#miles-and-miles-of-duct-tape-vyl-wnanory}
+#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#miles-and-miles-of-duct-tape-vyl-wnanory|Couldn't match up my day]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#couldnt-match-up-my-day-vyl-wnanory|Nothing in this world but sweet prune tang]]
+#### [[notes/b/boy_harsher/lesser_man_extended_version/modulations.md#nothing-in-this-world-but-sweet-prune-tang-vyl-wnanory|Could ever make me feel this way]]
 &nbsp;
-#### [[notes/c/crying_vessel/a_beautiful_curse/killing_time.md#poison-the-mind|My-my, my-my-my-my-my]]
-#### [[notes/c/crying_vessel/a_beautiful_curse/killing_time.md#poison-the-mind|Prune tang on my mind]]
-#### [[notes/c/crying_vessel/a_beautiful_curse/killing_time.md#poison-the-mind|My-my, my-my-my-my-my]]
-#### [[notes/c/crying_vessel/a_beautiful_curse/killing_time.md#poison-the-mind|Prune tang all the time]]
+#### [[notes/c/crying_vessel/a_beautiful_curse/killing_time.md#poison-the-mind-vyl-wnanory|My-my, my-my-my-my-my]] {#mymy-mymymymymy-vyl-wnanory}
+#### [[notes/c/crying_vessel/a_beautiful_curse/killing_time.md#mymy-mymymymymy-vyl-wnanory|Prune tang on my mind]]
+#### [[notes/c/crying_vessel/a_beautiful_curse/killing_time.md#prune-tang-on-my-mind-vyl-wnanory|My-my, my-my-my-my-my]]
+#### [[notes/c/crying_vessel/a_beautiful_curse/killing_time.md#mymy-mymymymymy-vyl-wnanory|Prune tang all the time]]
 &nbsp;
-#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away|My-my-my-my prune tang]]
-#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away|My-my-my (prune tang)]]
+#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#grinding-binding-taking-away-vyl-wnanory|My-my-my-my prune tang]]
+#### [[notes/w/wumpscut/wreath_of_barbs/wreath_of_barbs.md#mymymymy-prune-tang-vyl-wnanory|My-my-my (prune tang)]]
 &nbsp;
-#### [[notes/r/recoil/bloodline/bloodline.md#come-on-show-me|(Prune tang)]]
-#### [[notes/r/recoil/bloodline/bloodline.md#come-on-show-me|Prune tang!]]
-#### [[notes/r/recoil/bloodline/bloodline.md#come-on-show-me|(Prune tang)]]
-#### [[notes/r/recoil/bloodline/bloodline.md#come-on-show-me|Prune tang!]]
-#### [[notes/r/recoil/bloodline/bloodline.md#come-on-show-me|(Prune tang)]]
+#### [[notes/r/recoil/bloodline/bloodline.md#come-on-show-me-vyl-wnanory|(Prune tang)]]
+#### [[notes/r/recoil/bloodline/bloodline.md#prune-tang-vyl-wnanory|Prune tang!]]
+#### [[notes/r/recoil/bloodline/bloodline.md#prune-tang-vyl-wnanory|(Prune tang)]]
+#### [[notes/r/recoil/bloodline/bloodline.md#prune-tang-vyl-wnanory|Prune tang!]]
+#### [[notes/r/recoil/bloodline/bloodline.md#prune-tang-vyl-wnanory|(Prune tang)]]

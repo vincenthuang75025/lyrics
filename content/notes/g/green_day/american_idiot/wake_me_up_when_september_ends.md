@@ -5,30 +5,30 @@ tags:
 - American Idiot
 ---
 &nbsp;
-#### [[notes/t/truxton/hellhound/blues_day.md#like-my-fathers-come-to-pass|Summer has come and passed, the innocent can never last]]
-#### [[notes/t/truxton/hellhound/blues_day.md#like-my-fathers-come-to-pass|Wake me up when September ends]]
-#### [[notes/t/truxton/hellhound/blues_day.md#like-my-fathers-come-to-pass|Like my father's come to pass, seven years has gone so fast]]
-#### [[notes/t/truxton/hellhound/blues_day.md#like-my-fathers-come-to-pass|Wake me up when September ends]]
+#### [[notes/t/truxton/hellhound/blues_day.md#like-my-fathers-come-to-pass-vyl-wnanory|Summer has come and passed, the innocent can never last]] {#summer-has-come-and-passed-the-innocent-can-never-last-vyl-wnanory}
+#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed-the-innocent-can-never-last-vyl-wnanory|Wake me up when September ends]]
+#### [[notes/t/truxton/hellhound/blues_day.md#wake-me-up-when-september-ends-vyl-wnanory|Like my father's come to pass, seven years has gone so fast]]
+#### [[notes/t/truxton/hellhound/blues_day.md#like-my-fathers-come-to-pass-seven-years-has-gone-so-fast-vyl-wnanory|Wake me up when September ends]]
 &nbsp;
-#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests|Here comes the rain again, falling from the stars]]
-#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests|Drenched in my pain again, becoming who we are]]
-#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests|As my memory rests, but never forgets what I lost]]
-#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests|Wake me up when September ends]]
+#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests-vyl-wnanory|Here comes the rain again, falling from the stars]] {#here-comes-the-rain-again-falling-from-the-stars-vyl-wnanory}
+#### [[notes/t/truxton/hellhound/blues_day.md#here-comes-the-rain-again-falling-from-the-stars-vyl-wnanory|Drenched in my pain again, becoming who we are]]
+#### [[notes/t/truxton/hellhound/blues_day.md#drenched-in-my-pain-again-becoming-who-we-are-vyl-wnanory|As my memory rests, but never forgets what I lost]]
+#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests-but-never-forgets-what-i-lost-vyl-wnanory|Wake me up when September ends]]
 &nbsp;
-#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed|Summer has come and passed, the innocent can never last]]
-#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed|Wake me up when September ends]]
-#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed|Ring out the bells again, like we did when spring began]]
-#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed|Wake me up when September ends]]
+#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed-vyl-wnanory|Summer has come and passed, the innocent can never last]]
+#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed-the-innocent-can-never-last-vyl-wnanory|Wake me up when September ends]]
+#### [[notes/t/truxton/hellhound/blues_day.md#wake-me-up-when-september-ends-vyl-wnanory|Ring out the bells again, like we did when spring began]]
+#### [[notes/t/truxton/hellhound/blues_day.md#ring-out-the-bells-again-like-we-did-when-spring-began-vyl-wnanory|Wake me up when September ends]]
 &nbsp;
 #### Here comes the rain again, falling from the stars
 #### Drenched in my pain again, becoming who we are
 #### As my memory rests, but never forgets what I lost
 #### Wake me up when September ends
 &nbsp;
-#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed|Summer has come and passed, the innocent can never last]]
-#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed|Wake me up when September ends]]
-#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed|Like my father's come to pass, twenty years has gone so fast]]
-#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed|Wake me up when September ends]]
+#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed-vyl-wnanory|Summer has come and passed, the innocent can never last]]
+#### [[notes/t/truxton/hellhound/blues_day.md#summer-has-come-and-passed-the-innocent-can-never-last-vyl-wnanory|Wake me up when September ends]]
+#### [[notes/t/truxton/hellhound/blues_day.md#wake-me-up-when-september-ends-vyl-wnanory|Like my father's come to pass, twenty years has gone so fast]]
+#### [[notes/t/truxton/hellhound/blues_day.md#like-my-fathers-come-to-pass-twenty-years-has-gone-so-fast-vyl-wnanory|Wake me up when September ends]]
 &nbsp;
-#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests|Wake me up when September ends]]
-#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests|Wake me up when September ends]]
+#### [[notes/t/truxton/hellhound/blues_day.md#as-my-memory-rests-vyl-wnanory|Wake me up when September ends]] {#wake-me-up-when-september-ends-vyl-wnanory}
+#### [[notes/t/truxton/hellhound/blues_day.md#wake-me-up-when-september-ends-vyl-wnanory|Wake me up when September ends]]

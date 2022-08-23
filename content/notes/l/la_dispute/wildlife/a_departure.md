@@ -5,63 +5,63 @@ tags:
 - Wildlife
 ---
 &nbsp;
-#### [[notes/k/korn/the_paradigm_shift/its_all_wrong.md#everything-everything|for everything]]
+#### [[notes/k/korn/the_paradigm_shift/its_all_wrong.md#everything-everything-vyl-wnanory|for everything]] {#for-everything-vyl-wnanory}
 &nbsp;
-#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#down-down|Night fell on me writing this]]
-#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#down-down|And I ran out of paper]]
-#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#down-down|So I crossed the name out]]
-#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#down-down|At the top of the page]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#down-down-vyl-wnanory|Night fell on me writing this]] {#night-fell-on-me-writing-this-vyl-wnanory}
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#night-fell-on-me-writing-this-vyl-wnanory|And I ran out of paper]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#and-i-ran-out-of-paper-vyl-wnanory|So I crossed the name out]]
+#### [[notes/a/avenged_sevenfold/nightmare/nightmare.md#so-i-crossed-the-name-out-vyl-wnanory|At the top of the page]]
 &nbsp;
-#### [[notes/l/la_dispute/wildlife/king_park.md#cruelly-i-recall|Not sure why I'm even writing this]]
-#### [[notes/l/la_dispute/wildlife/king_park.md#cruelly-i-recall|But I guess it feels right]]
-#### [[notes/l/la_dispute/wildlife/king_park.md#cruelly-i-recall|It sort of feels like I have to]]
-#### [[notes/l/la_dispute/wildlife/king_park.md#cruelly-i-recall|Like an exorcism]]
+#### [[notes/l/la_dispute/wildlife/king_park.md#cruelly-i-recall-vyl-wnanory|Not sure why I'm even writing this]] {#not-sure-why-im-even-writing-this-vyl-wnanory}
+#### [[notes/l/la_dispute/wildlife/king_park.md#not-sure-why-im-even-writing-this-vyl-wnanory|But I guess it feels right]]
+#### [[notes/l/la_dispute/wildlife/king_park.md#but-i-guess-it-feels-right-vyl-wnanory|It sort of feels like I have to]]
+#### [[notes/l/la_dispute/wildlife/king_park.md#it-sort-of-feels-like-i-have-to-vyl-wnanory|Like an exorcism]]
 &nbsp;
-#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_plague.md#reach-out-your-hand-to-find-forgiveness-only-to-be-plagued-by-disease-plagued-by-disease|I guess that makes me sound crazy]]
-#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_plague.md#reach-out-your-hand-to-find-forgiveness-only-to-be-plagued-by-disease-plagued-by-disease|But that's alright]]
-#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_plague.md#reach-out-your-hand-to-find-forgiveness-only-to-be-plagued-by-disease-plagued-by-disease|Lately I feel like I might be]]
-#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_plague.md#reach-out-your-hand-to-find-forgiveness-only-to-be-plagued-by-disease-plagued-by-disease|Not that I've heard any voices or anything]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_plague.md#reach-out-your-hand-to-find-forgiveness-only-to-be-plagued-by-disease-plagued-by-disease-vyl-wnanory|I guess that makes me sound crazy]] {#i-guess-that-makes-me-sound-crazy-vyl-wnanory}
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_plague.md#i-guess-that-makes-me-sound-crazy-vyl-wnanory|But that's alright]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_plague.md#but-thats-alright-vyl-wnanory|Lately I feel like I might be]]
+#### [[notes/a/as_i_lay_dying/the_powerless_rise/the_plague.md#lately-i-feel-like-i-might-be-vyl-wnanory|Not that I've heard any voices or anything]]
 &nbsp;
-#### [[notes/t/the_xx/angels/angels.md#and-everyday|Just like that everyday kind]]
-#### [[notes/t/the_xx/angels/angels.md#and-everyday|Where you forget things you shouldn't]]
-#### [[notes/t/the_xx/angels/angels.md#and-everyday|And you think too much about death]]
+#### [[notes/t/the_xx/angels/angels.md#and-everyday-vyl-wnanory|Just like that everyday kind]] {#just-like-that-everyday-kind-vyl-wnanory}
+#### [[notes/t/the_xx/angels/angels.md#just-like-that-everyday-kind-vyl-wnanory|Where you forget things you shouldn't]]
+#### [[notes/t/the_xx/angels/angels.md#where-you-forget-things-you-shouldnt-vyl-wnanory|And you think too much about death]]
 &nbsp;
-#### [[notes/s/sandra/the_long_play/ill_never_be_maria_magdalena.md#ill-never-be-maria-magdalena|Maybe you know what I'm talking about?]]
-#### [[notes/s/sandra/the_long_play/ill_never_be_maria_magdalena.md#ill-never-be-maria-magdalena|Or maybe you would have known?]]
-#### [[notes/s/sandra/the_long_play/ill_never_be_maria_magdalena.md#ill-never-be-maria-magdalena|Or had known? Is it once knew?]]
-#### [[notes/s/sandra/the_long_play/ill_never_be_maria_magdalena.md#ill-never-be-maria-magdalena|I don't know what tense to use]]
+#### [[notes/s/sandra/the_long_play/ill_never_be_maria_magdalena.md#ill-never-be-maria-magdalena-vyl-wnanory|Maybe you know what I'm talking about?]] {#maybe-you-know-what-im-talking-about-vyl-wnanory}
+#### [[notes/s/sandra/the_long_play/ill_never_be_maria_magdalena.md#maybe-you-know-what-im-talking-about-vyl-wnanory|Or maybe you would have known?]]
+#### [[notes/s/sandra/the_long_play/ill_never_be_maria_magdalena.md#or-maybe-you-would-have-known-vyl-wnanory|Or had known? Is it once knew?]]
+#### [[notes/s/sandra/the_long_play/ill_never_be_maria_magdalena.md#or-had-known-is-it-once-knew-vyl-wnanory|I don't know what tense to use]]
 &nbsp;
-#### [[notes/h/hollywood_undead/notes_from_the_underground/we_are.md#we-are-we-are-from-the-city-of-angels|I know I never used to feel like this]]
-#### [[notes/h/hollywood_undead/notes_from_the_underground/we_are.md#we-are-we-are-from-the-city-of-angels|I used to never think of death or hear voices]]
-#### [[notes/h/hollywood_undead/notes_from_the_underground/we_are.md#we-are-we-are-from-the-city-of-angels|I used to feel like everything was perfectly in order]]
-#### [[notes/h/hollywood_undead/notes_from_the_underground/we_are.md#we-are-we-are-from-the-city-of-angels|A normal life, but I guess then came a departure]]
+#### [[notes/h/hollywood_undead/notes_from_the_underground/we_are.md#we-are-we-are-from-the-city-of-angels-vyl-wnanory|I know I never used to feel like this]] {#i-know-i-never-used-to-feel-like-this-vyl-wnanory}
+#### [[notes/h/hollywood_undead/notes_from_the_underground/we_are.md#i-know-i-never-used-to-feel-like-this-vyl-wnanory|I used to never think of death or hear voices]]
+#### [[notes/h/hollywood_undead/notes_from_the_underground/we_are.md#i-used-to-never-think-of-death-or-hear-voices-vyl-wnanory|I used to feel like everything was perfectly in order]]
+#### [[notes/h/hollywood_undead/notes_from_the_underground/we_are.md#i-used-to-feel-like-everything-was-perfectly-in-order-vyl-wnanory|A normal life, but I guess then came a departure]]
 &nbsp;
-#### [[notes/a/asking_alexandria/stand_up_and_scream/not_the_american_average.md#your-thighs-were-made-for-cheeks-to-graze|That I know you understand]]
-#### [[notes/a/asking_alexandria/stand_up_and_scream/not_the_american_average.md#your-thighs-were-made-for-cheeks-to-graze|Or would've understood]]
-#### [[notes/a/asking_alexandria/stand_up_and_scream/not_the_american_average.md#your-thighs-were-made-for-cheeks-to-graze|I guess things changed after that]]
-#### [[notes/a/asking_alexandria/stand_up_and_scream/not_the_american_average.md#your-thighs-were-made-for-cheeks-to-graze|And I'm mostly scared now]]
+#### [[notes/a/asking_alexandria/stand_up_and_scream/not_the_american_average.md#your-thighs-were-made-for-cheeks-to-graze-vyl-wnanory|That I know you understand]] {#that-i-know-you-understand-vyl-wnanory}
+#### [[notes/a/asking_alexandria/stand_up_and_scream/not_the_american_average.md#that-i-know-you-understand-vyl-wnanory|Or would've understood]]
+#### [[notes/a/asking_alexandria/stand_up_and_scream/not_the_american_average.md#or-wouldve-understood-vyl-wnanory|I guess things changed after that]]
+#### [[notes/a/asking_alexandria/stand_up_and_scream/not_the_american_average.md#i-guess-things-changed-after-that-vyl-wnanory|And I'm mostly scared now]]
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#mother-nature-is-a-coward-mother-nature-is-a-whore|But it's there in the stories]]
-#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#mother-nature-is-a-coward-mother-nature-is-a-whore|Or whatever they are]]
-#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#mother-nature-is-a-coward-mother-nature-is-a-whore|You can see it]]
-#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#mother-nature-is-a-coward-mother-nature-is-a-whore|Anybody could, if they could look]]
+#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#mother-nature-is-a-coward-mother-nature-is-a-whore-vyl-wnanory|But it's there in the stories]] {#but-its-there-in-the-stories-vyl-wnanory}
+#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#but-its-there-in-the-stories-vyl-wnanory|Or whatever they are]]
+#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#or-whatever-they-are-vyl-wnanory|You can see it]]
+#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#you-can-see-it-vyl-wnanory|Anybody could, if they could look]]
 &nbsp;
-#### [[notes/f/front_line_assembly/echogenetic/exo.md#loneliness---human-emotions-of-parody|I wrote some notes in the]]
-#### [[notes/f/front_line_assembly/echogenetic/exo.md#loneliness---human-emotions-of-parody|Margins explaining it]]
-#### [[notes/f/front_line_assembly/echogenetic/exo.md#loneliness---human-emotions-of-parody|The rest is in between lines]]
-#### [[notes/f/front_line_assembly/echogenetic/exo.md#loneliness---human-emotions-of-parody|Or in the fine print]]
+#### [[notes/f/front_line_assembly/echogenetic/exo.md#loneliness---human-emotions-of-parody-vyl-wnanory|I wrote some notes in the]] {#i-wrote-some-notes-in-the-vyl-wnanory}
+#### [[notes/f/front_line_assembly/echogenetic/exo.md#i-wrote-some-notes-in-the-vyl-wnanory|Margins explaining it]]
+#### [[notes/f/front_line_assembly/echogenetic/exo.md#margins-explaining-it-vyl-wnanory|The rest is in between lines]]
+#### [[notes/f/front_line_assembly/echogenetic/exo.md#the-rest-is-in-between-lines-vyl-wnanory|Or in the fine print]]
 &nbsp;
-#### [[notes/p/paul_young/no_parlez/come_back_and_stay.md#come-back-and-stay-for-good-this-time|First, the feeling of abandonment]]
-#### [[notes/p/paul_young/no_parlez/come_back_and_stay.md#come-back-and-stay-for-good-this-time|Then trying to cope]]
-#### [[notes/p/paul_young/no_parlez/come_back_and_stay.md#come-back-and-stay-for-good-this-time|Then death and hope and the thing itself]]
-#### [[notes/p/paul_young/no_parlez/come_back_and_stay.md#come-back-and-stay-for-good-this-time|Waiting for me]]
+#### [[notes/p/paul_young/no_parlez/come_back_and_stay.md#come-back-and-stay-for-good-this-time-vyl-wnanory|First, the feeling of abandonment]] {#first-the-feeling-of-abandonment-vyl-wnanory}
+#### [[notes/p/paul_young/no_parlez/come_back_and_stay.md#first-the-feeling-of-abandonment-vyl-wnanory|Then trying to cope]]
+#### [[notes/p/paul_young/no_parlez/come_back_and_stay.md#then-trying-to-cope-vyl-wnanory|Then death and hope and the thing itself]]
+#### [[notes/p/paul_young/no_parlez/come_back_and_stay.md#then-death-and-hope-and-the-thing-itself-vyl-wnanory|Waiting for me]]
 &nbsp;
-#### [[notes/r/recoil/bloodline/edge_to_life.md#im-not-waiting|It's all there in the pages]]
-#### [[notes/r/recoil/bloodline/edge_to_life.md#im-not-waiting|Ahead of here]]
-#### [[notes/r/recoil/bloodline/edge_to_life.md#im-not-waiting|It's there, waiting for you]]
-#### [[notes/r/recoil/bloodline/edge_to_life.md#im-not-waiting|Or for me; I'm not sure]]
+#### [[notes/r/recoil/bloodline/edge_to_life.md#im-not-waiting-vyl-wnanory|It's all there in the pages]] {#its-all-there-in-the-pages-vyl-wnanory}
+#### [[notes/r/recoil/bloodline/edge_to_life.md#its-all-there-in-the-pages-vyl-wnanory|Ahead of here]]
+#### [[notes/r/recoil/bloodline/edge_to_life.md#ahead-of-here-vyl-wnanory|It's there, waiting for you]]
+#### [[notes/r/recoil/bloodline/edge_to_life.md#its-there-waiting-for-you-vyl-wnanory|Or for me; I'm not sure]]
 &nbsp;
-#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/seen_to_run.md#the-trick-is-to-keep-lying|The whole story]]
+#### [[notes/a/alaska_highway/attitudes_of_a_difficult_mind/seen_to_run.md#the-trick-is-to-keep-lying-vyl-wnanory|The whole story]] {#the-whole-story-vyl-wnanory}
 &nbsp;
-#### [[notes/k/korn/the_paradigm_shift/its_all_wrong.md#everything-everything|For everything]]
-#### [[notes/k/korn/the_paradigm_shift/its_all_wrong.md#everything-everything|For everything]]
+#### [[notes/k/korn/the_paradigm_shift/its_all_wrong.md#everything-everything-vyl-wnanory|For everything]]
+#### [[notes/k/korn/the_paradigm_shift/its_all_wrong.md#for-everything-vyl-wnanory|For everything]]

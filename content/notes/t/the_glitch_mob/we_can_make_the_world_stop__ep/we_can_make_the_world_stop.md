@@ -5,9 +5,9 @@ tags:
 - We Can Make The World Stop - EP
 ---
 &nbsp;
-#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true|Stand still, pause clocks, we can make the world stop.]]
+#### [[notes/f/faith_no_more/angel_dust/midlife_crisis.md#youre-perfect-yes-its-true-vyl-wnanory|Stand still, pause clocks, we can make the world stop.]] {#stand-still-pause-clocks-we-can-make-the-world-stop-vyl-wnanory}
 &nbsp;
-#### [[notes/b/breaking_benjamin/phobia/unknown_soldier.md#so-i-can-leave-this-world-behind|We can make the world stop.]]
+#### [[notes/b/breaking_benjamin/phobia/unknown_soldier.md#so-i-can-leave-this-world-behind-vyl-wnanory|We can make the world stop.]] {#we-can-make-the-world-stop-vyl-wnanory}
 &nbsp;
 #### Stand still, pause clocks, we can make the world stop.
 &nbsp;

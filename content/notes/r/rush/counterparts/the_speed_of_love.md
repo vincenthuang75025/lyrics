@@ -5,54 +5,54 @@ tags:
 - Counterparts
 ---
 &nbsp;
-#### [[notes/l/linkin_park/hybrid_theory/points_of_authority.md#forfeit-the-game|Love is born with lightning bolts]]
-#### [[notes/l/linkin_park/hybrid_theory/points_of_authority.md#forfeit-the-game|Electro-magnetic force]]
-#### [[notes/l/linkin_park/hybrid_theory/points_of_authority.md#forfeit-the-game|Burning skin and fireworks]]
-#### [[notes/l/linkin_park/hybrid_theory/points_of_authority.md#forfeit-the-game|A storm on a raging course]]
+#### [[notes/l/linkin_park/hybrid_theory/points_of_authority.md#forfeit-the-game-vyl-wnanory|Love is born with lightning bolts]] {#love-is-born-with-lightning-bolts-vyl-wnanory}
+#### [[notes/l/linkin_park/hybrid_theory/points_of_authority.md#love-is-born-with-lightning-bolts-vyl-wnanory|Electro-magnetic force]]
+#### [[notes/l/linkin_park/hybrid_theory/points_of_authority.md#electromagnetic-force-vyl-wnanory|Burning skin and fireworks]]
+#### [[notes/l/linkin_park/hybrid_theory/points_of_authority.md#burning-skin-and-fireworks-vyl-wnanory|A storm on a raging course]]
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/perception/the_writer.md#its-your-turn-right-now|Like a force of nature]]
-#### [[notes/b/breakdown_of_sanity/perception/the_writer.md#its-your-turn-right-now|Love can fade with the stars at dawn]]
-#### [[notes/b/breakdown_of_sanity/perception/the_writer.md#its-your-turn-right-now|Sometimes it takes all your strength]]
-#### [[notes/b/breakdown_of_sanity/perception/the_writer.md#its-your-turn-right-now|Just to keep holding on]]
+#### [[notes/b/breakdown_of_sanity/perception/the_writer.md#its-your-turn-right-now-vyl-wnanory|Like a force of nature]] {#like-a-force-of-nature-vyl-wnanory}
+#### [[notes/b/breakdown_of_sanity/perception/the_writer.md#like-a-force-of-nature-vyl-wnanory|Love can fade with the stars at dawn]]
+#### [[notes/b/breakdown_of_sanity/perception/the_writer.md#love-can-fade-with-the-stars-at-dawn-vyl-wnanory|Sometimes it takes all your strength]]
+#### [[notes/b/breakdown_of_sanity/perception/the_writer.md#sometimes-it-takes-all-your-strength-vyl-wnanory|Just to keep holding on]]
 &nbsp;
-#### [[notes/p/pendulum/in_silico/visions.md#change-your-visions-give-us-a-sound|At the speed of love]]
-#### [[notes/p/pendulum/in_silico/visions.md#change-your-visions-give-us-a-sound|A radiance that travels]]
-#### [[notes/p/pendulum/in_silico/visions.md#change-your-visions-give-us-a-sound|At the speed of love]]
-#### [[notes/p/pendulum/in_silico/visions.md#change-your-visions-give-us-a-sound|My heart goes out to you]]
+#### [[notes/p/pendulum/in_silico/visions.md#change-your-visions-give-us-a-sound-vyl-wnanory|At the speed of love]] {#at-the-speed-of-love-vyl-wnanory}
+#### [[notes/p/pendulum/in_silico/visions.md#at-the-speed-of-love-vyl-wnanory|A radiance that travels]]
+#### [[notes/p/pendulum/in_silico/visions.md#a-radiance-that-travels-vyl-wnanory|At the speed of love]]
+#### [[notes/p/pendulum/in_silico/visions.md#at-the-speed-of-love-vyl-wnanory|My heart goes out to you]]
 &nbsp;
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/archers.md#if-you-try|Love is born with solar flares]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/archers.md#if-you-try|From two magnetic poles]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/archers.md#if-you-try|Moves towards a higher plane]]
-#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/archers.md#if-you-try|Where two halves make two wholes]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/archers.md#if-you-try-vyl-wnanory|Love is born with solar flares]] {#love-is-born-with-solar-flares-vyl-wnanory}
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/archers.md#love-is-born-with-solar-flares-vyl-wnanory|From two magnetic poles]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/archers.md#from-two-magnetic-poles-vyl-wnanory|Moves towards a higher plane]]
+#### [[notes/b/brand_new/the_devil_and_god_are_raging_inside_me/archers.md#moves-towards-a-higher-plane-vyl-wnanory|Where two halves make two wholes]]
 &nbsp;
-#### [[notes/l/lamb_of_god/ashes_of_the_wake/hourglass.md#gehenna-has-now-arrived|Like a force of nature]]
-#### [[notes/l/lamb_of_god/ashes_of_the_wake/hourglass.md#gehenna-has-now-arrived|Love shines in many forms]]
-#### [[notes/l/lamb_of_god/ashes_of_the_wake/hourglass.md#gehenna-has-now-arrived|One night you are bathed in light]]
-#### [[notes/l/lamb_of_god/ashes_of_the_wake/hourglass.md#gehenna-has-now-arrived|One day get carried away in storms]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/hourglass.md#gehenna-has-now-arrived-vyl-wnanory|Like a force of nature]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/hourglass.md#like-a-force-of-nature-vyl-wnanory|Love shines in many forms]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/hourglass.md#love-shines-in-many-forms-vyl-wnanory|One night you are bathed in light]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/hourglass.md#one-night-you-are-bathed-in-light-vyl-wnanory|One day get carried away in storms]]
 &nbsp;
 #### At the speed of love
 #### A radiance that travels
 #### At the speed of love
 #### My heart goes out to you
 &nbsp;
-#### [[notes/p/pendulum/immersion/watercolour.md#all-i-believe-and-all-ive-known|At the speed of love]]
-#### [[notes/p/pendulum/immersion/watercolour.md#all-i-believe-and-all-ive-known|Nothing changes faster (nothing changes)]]
-#### [[notes/p/pendulum/immersion/watercolour.md#all-i-believe-and-all-ive-known|Than the speed of love]]
-#### [[notes/p/pendulum/immersion/watercolour.md#all-i-believe-and-all-ive-known|My heart goes out to you]]
+#### [[notes/p/pendulum/immersion/watercolour.md#all-i-believe-and-all-ive-known-vyl-wnanory|At the speed of love]]
+#### [[notes/p/pendulum/immersion/watercolour.md#at-the-speed-of-love-vyl-wnanory|Nothing changes faster (nothing changes)]]
+#### [[notes/p/pendulum/immersion/watercolour.md#nothing-changes-faster-nothing-changes-vyl-wnanory|Than the speed of love]]
+#### [[notes/p/pendulum/immersion/watercolour.md#than-the-speed-of-love-vyl-wnanory|My heart goes out to you]]
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/mirrors/one_bullet_left.md#you-have-no-reason-to-celebrate-lights-out|Whoa-ah-oh-oh]]
+#### [[notes/b/breakdown_of_sanity/mirrors/one_bullet_left.md#you-have-no-reason-to-celebrate-lights-out-vyl-wnanory|Whoa-ah-oh-oh]] {#whoaahohoh-vyl-wnanory}
 &nbsp;
-#### [[notes/s/system_of_a_down/hypnotize/holy_mountains.md#can-you-feel-their-haunting-presence|We don't have to talk (to talk)]]
-#### [[notes/s/system_of_a_down/hypnotize/holy_mountains.md#can-you-feel-their-haunting-presence|We don't even have to touch]]
-#### [[notes/s/system_of_a_down/hypnotize/holy_mountains.md#can-you-feel-their-haunting-presence|I can feel your presence]]
-#### [[notes/s/system_of_a_down/hypnotize/holy_mountains.md#can-you-feel-their-haunting-presence|In the silence that we share]]
+#### [[notes/s/system_of_a_down/hypnotize/holy_mountains.md#can-you-feel-their-haunting-presence-vyl-wnanory|We don't have to talk (to talk)]] {#we-dont-have-to-talk-to-talk-vyl-wnanory}
+#### [[notes/s/system_of_a_down/hypnotize/holy_mountains.md#we-dont-have-to-talk-to-talk-vyl-wnanory|We don't even have to touch]]
+#### [[notes/s/system_of_a_down/hypnotize/holy_mountains.md#we-dont-even-have-to-touch-vyl-wnanory|I can feel your presence]]
+#### [[notes/s/system_of_a_down/hypnotize/holy_mountains.md#i-can-feel-your-presence-vyl-wnanory|In the silence that we share]]
 &nbsp;
-#### [[notes/d/deftones/white_pony/pink_maggit.md#pushed-back-to-square|Got to keep on moving]]
-#### [[notes/d/deftones/white_pony/pink_maggit.md#pushed-back-to-square|At the speed of love]]
-#### [[notes/d/deftones/white_pony/pink_maggit.md#pushed-back-to-square|Nothing changes faster]]
-#### [[notes/d/deftones/white_pony/pink_maggit.md#pushed-back-to-square|Than the speed of love]]
-#### [[notes/d/deftones/white_pony/pink_maggit.md#pushed-back-to-square|Got to keep on shining]]
-#### [[notes/d/deftones/white_pony/pink_maggit.md#pushed-back-to-square|At the speed of love]]
+#### [[notes/d/deftones/white_pony/pink_maggit.md#pushed-back-to-square-vyl-wnanory|Got to keep on moving]] {#got-to-keep-on-moving-vyl-wnanory}
+#### [[notes/d/deftones/white_pony/pink_maggit.md#got-to-keep-on-moving-vyl-wnanory|At the speed of love]]
+#### [[notes/d/deftones/white_pony/pink_maggit.md#at-the-speed-of-love-vyl-wnanory|Nothing changes faster]]
+#### [[notes/d/deftones/white_pony/pink_maggit.md#nothing-changes-faster-vyl-wnanory|Than the speed of love]]
+#### [[notes/d/deftones/white_pony/pink_maggit.md#than-the-speed-of-love-vyl-wnanory|Got to keep on shining]]
+#### [[notes/d/deftones/white_pony/pink_maggit.md#got-to-keep-on-shining-vyl-wnanory|At the speed of love]]
 &nbsp;
 #### At the speed of love
 #### A radiance that travels
@@ -66,15 +66,15 @@ tags:
 &nbsp;
 #### Whoa-ah-oh-oh
 &nbsp;
-#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#love|At the speed of love]]
+#### [[notes/x/x/aint_love_grand/burning_house_of_love.md#love-vyl-wnanory|At the speed of love]]
 &nbsp;
-#### [[notes/c/caliban/i_am_nemesis/davy_jones.md#im-not-going-down-that-road-again|At the speed (at the speed) of love]]
+#### [[notes/c/caliban/i_am_nemesis/davy_jones.md#im-not-going-down-that-road-again-vyl-wnanory|At the speed (at the speed) of love]] {#at-the-speed-at-the-speed-of-love-vyl-wnanory}
 &nbsp;
 #### At the speed (at the speed) of love
 &nbsp;
 #### Whoa-ah-oh-oh
 &nbsp;
-#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love|(At the speed of love)]]
+#### [[notes/s/sunglasses_kid/unpredictable/come_back_to_me__feat_the_boy__sister_alma.md#need-your-love-vyl-wnanory|(At the speed of love)]]
 &nbsp;
 #### At the speed of love
 &nbsp;

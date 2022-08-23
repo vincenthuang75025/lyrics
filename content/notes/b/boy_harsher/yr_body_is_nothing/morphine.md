@@ -5,36 +5,36 @@ tags:
 - Yr Body Is Nothing
 ---
 &nbsp;
-#### [[notes/l/lamb_of_god/ashes_of_the_wake/ashes_of_the_wake.md#we-killed-a-lot-of-innocent-civilians|I]]
+#### [[notes/l/lamb_of_god/ashes_of_the_wake/ashes_of_the_wake.md#we-killed-a-lot-of-innocent-civilians-vyl-wnanory|I]]
 &nbsp;
 #### I
 &nbsp;
-#### [[notes/b/boy_harsher/careful/la.md#take-me-down-to-la|I wanna take you down]]
-#### [[notes/b/boy_harsher/careful/la.md#take-me-down-to-la|Lies make it hurt]]
-#### [[notes/b/boy_harsher/careful/la.md#take-me-down-to-la|You, you want the same thing]]
-#### [[notes/b/boy_harsher/careful/la.md#take-me-down-to-la|I wanna make it sting]]
+#### [[notes/b/boy_harsher/careful/la.md#take-me-down-to-la-vyl-wnanory|I wanna take you down]] {#i-wanna-take-you-down-vyl-wnanory}
+#### [[notes/b/boy_harsher/careful/la.md#i-wanna-take-you-down-vyl-wnanory|Lies make it hurt]]
+#### [[notes/b/boy_harsher/careful/la.md#lies-make-it-hurt-vyl-wnanory|You, you want the same thing]]
+#### [[notes/b/boy_harsher/careful/la.md#you-you-want-the-same-thing-vyl-wnanory|I wanna make it sting]]
 &nbsp;
-#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#they-mutilated-his-body-and-they-took-out-his-brain|Alone in my hotel room]]
-#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#they-mutilated-his-body-and-they-took-out-his-brain|Alone without a second chance]]
-#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#they-mutilated-his-body-and-they-took-out-his-brain|I wanna make it hurt more]]
-#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#they-mutilated-his-body-and-they-took-out-his-brain|I wanna make you dance]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#they-mutilated-his-body-and-they-took-out-his-brain-vyl-wnanory|Alone in my hotel room]] {#alone-in-my-hotel-room-vyl-wnanory}
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#alone-in-my-hotel-room-vyl-wnanory|Alone without a second chance]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#alone-without-a-second-chance-vyl-wnanory|I wanna make it hurt more]]
+#### [[notes/b/bob_dylan/rough_and_rowdy_ways/murder_most_foul.md#i-wanna-make-it-hurt-more-vyl-wnanory|I wanna make you dance]]
 &nbsp;
-#### [[notes/t/tool/opiate/hush.md#things-like|It's like heaven]]
-#### [[notes/t/tool/opiate/hush.md#things-like|Above]]
+#### [[notes/t/tool/opiate/hush.md#things-like-vyl-wnanory|It's like heaven]] {#its-like-heaven-vyl-wnanory}
+#### [[notes/t/tool/opiate/hush.md#its-like-heaven-vyl-wnanory|Above]]
 &nbsp;
 #### It's like heaven
 #### Above
 &nbsp;
-#### [[notes/b/boy_harsher/careful/rov.md#when-the-gun-falls|She's like morphine on my mind]]
-#### [[notes/b/boy_harsher/careful/rov.md#when-the-gun-falls|She's like morphine all the time]]
-#### [[notes/b/boy_harsher/careful/rov.md#when-the-gun-falls|She's that morphine when I'm coming down]]
-#### [[notes/b/boy_harsher/careful/rov.md#when-the-gun-falls|She's that morphine when I hit the ground]]
-#### [[notes/b/boy_harsher/careful/rov.md#when-the-gun-falls|She's like morphine]]
+#### [[notes/b/boy_harsher/careful/rov.md#when-the-gun-falls-vyl-wnanory|She's like morphine on my mind]] {#shes-like-morphine-on-my-mind-vyl-wnanory}
+#### [[notes/b/boy_harsher/careful/rov.md#shes-like-morphine-on-my-mind-vyl-wnanory|She's like morphine all the time]]
+#### [[notes/b/boy_harsher/careful/rov.md#shes-like-morphine-all-the-time-vyl-wnanory|She's that morphine when I'm coming down]]
+#### [[notes/b/boy_harsher/careful/rov.md#shes-that-morphine-when-im-coming-down-vyl-wnanory|She's that morphine when I hit the ground]]
+#### [[notes/b/boy_harsher/careful/rov.md#shes-that-morphine-when-i-hit-the-ground-vyl-wnanory|She's like morphine]]
 &nbsp;
 #### I
 &nbsp;
-#### [[notes/b/boy_harsher/country_girl_uncut/country_girl.md#nothing-like-that-way-you-used-to-feel|She's like morphine on my mind]]
-#### [[notes/b/boy_harsher/country_girl_uncut/country_girl.md#nothing-like-that-way-you-used-to-feel|She's like morphine in my way]]
+#### [[notes/b/boy_harsher/country_girl_uncut/country_girl.md#nothing-like-that-way-you-used-to-feel-vyl-wnanory|She's like morphine on my mind]]
+#### [[notes/b/boy_harsher/country_girl_uncut/country_girl.md#shes-like-morphine-on-my-mind-vyl-wnanory|She's like morphine in my way]]
 &nbsp;
 #### You
 &nbsp;
@@ -42,12 +42,12 @@ tags:
 &nbsp;
 #### You
 &nbsp;
-#### [[notes/s/stick_to_your_guns/the_hope_division/scarecrow.md#black-dynasty-youve-defined-true-tragedy-and-this-world-bleeds-but-i-have-found-peace-as-your-enemy-as-your-betrayer-i-am-the-traitor--erida-i-pray-that-the-same-hate-that-kills-and-rapes-doesnt-give-way-in-my-head-if-it-does-im-as-good-as-dead--you-spread-your-mind-plague-to-anyone-who-listens-i-cant-believe-your-hate-has-so-much-ambition-the-infection-you-bleed-of-your-own-volition-its-not-enough-to-make-your-own-decisions-no-more-malice-watch-us-break-it-we-want-progress-so-well-make-it-this-is-a-new-kind-of-justice-we-just-have-to-take-it-my-mind-is-poised-and-the-strike-will-be-deadly-and-you-better-believe-im-bringing-all-hell-with-me|Lies (ah) will make it hurt]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/scarecrow.md#black-dynasty-youve-defined-true-tragedy-and-this-world-bleeds-but-i-have-found-peace-as-your-enemy-as-your-betrayer-i-am-the-traitor--erida-i-pray-that-the-same-hate-that-kills-and-rapes-doesnt-give-way-in-my-head-if-it-does-im-as-good-as-dead--you-spread-your-mind-plague-to-anyone-who-listens-i-cant-believe-your-hate-has-so-much-ambition-the-infection-you-bleed-of-your-own-volition-its-not-enough-to-make-your-own-decisions-no-more-malice-watch-us-break-it-we-want-progress-so-well-make-it-this-is-a-new-kind-of-justice-we-just-have-to-take-it-my-mind-is-poised-and-the-strike-will-be-deadly-and-you-better-believe-im-bringing-all-hell-with-me|Lies make it hurt]]
-#### [[notes/s/stick_to_your_guns/the_hope_division/scarecrow.md#black-dynasty-youve-defined-true-tragedy-and-this-world-bleeds-but-i-have-found-peace-as-your-enemy-as-your-betrayer-i-am-the-traitor--erida-i-pray-that-the-same-hate-that-kills-and-rapes-doesnt-give-way-in-my-head-if-it-does-im-as-good-as-dead--you-spread-your-mind-plague-to-anyone-who-listens-i-cant-believe-your-hate-has-so-much-ambition-the-infection-you-bleed-of-your-own-volition-its-not-enough-to-make-your-own-decisions-no-more-malice-watch-us-break-it-we-want-progress-so-well-make-it-this-is-a-new-kind-of-justice-we-just-have-to-take-it-my-mind-is-poised-and-the-strike-will-be-deadly-and-you-better-believe-im-bringing-all-hell-with-me|You want the same thing]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/scarecrow.md#black-dynasty-youve-defined-true-tragedy-and-this-world-bleeds-but-i-have-found-peace-as-your-enemy-as-your-betrayer-i-am-the-traitor--erida-i-pray-that-the-same-hate-that-kills-and-rapes-doesnt-give-way-in-my-head-if-it-does-im-as-good-as-dead--you-spread-your-mind-plague-to-anyone-who-listens-i-cant-believe-your-hate-has-so-much-ambition-the-infection-you-bleed-of-your-own-volition-its-not-enough-to-make-your-own-decisions-no-more-malice-watch-us-break-it-we-want-progress-so-well-make-it-this-is-a-new-kind-of-justice-we-just-have-to-take-it-my-mind-is-poised-and-the-strike-will-be-deadly-and-you-better-believe-im-bringing-all-hell-with-me-vyl-wnanory|Lies (ah) will make it hurt]] {#lies-ah-will-make-it-hurt-vyl-wnanory}
+#### [[notes/s/stick_to_your_guns/the_hope_division/scarecrow.md#lies-ah-will-make-it-hurt-vyl-wnanory|Lies make it hurt]]
+#### [[notes/s/stick_to_your_guns/the_hope_division/scarecrow.md#lies-make-it-hurt-vyl-wnanory|You want the same thing]]
 &nbsp;
 #### It's like heaven
 #### Above
 &nbsp;
-#### [[notes/b/breaking_benjamin/phobia/had_enough.md#heaven-help-you|I'm in heaven]]
-#### [[notes/b/breaking_benjamin/phobia/had_enough.md#heaven-help-you|Above]]
+#### [[notes/b/breaking_benjamin/phobia/had_enough.md#heaven-help-you-vyl-wnanory|I'm in heaven]] {#im-in-heaven-vyl-wnanory}
+#### [[notes/b/breaking_benjamin/phobia/had_enough.md#im-in-heaven-vyl-wnanory|Above]]

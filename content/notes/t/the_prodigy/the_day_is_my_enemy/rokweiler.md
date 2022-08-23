@@ -5,18 +5,18 @@ tags:
 - The Day Is My Enemy
 ---
 &nbsp;
-#### [[notes/s/stray_cats/choo_choo_hot_fish/my_heart_is_a_liar.md#sitting-all-alone-feeling-sorry-for-myself|Rok-rok-rok, rok-rok-rok]]
-#### [[notes/s/stray_cats/choo_choo_hot_fish/my_heart_is_a_liar.md#sitting-all-alone-feeling-sorry-for-myself|Rok-rok-rok, rok-weiler]]
-#### [[notes/s/stray_cats/choo_choo_hot_fish/my_heart_is_a_liar.md#sitting-all-alone-feeling-sorry-for-myself|Rok-rok-rok, rok-rok-rok]]
-#### [[notes/s/stray_cats/choo_choo_hot_fish/my_heart_is_a_liar.md#sitting-all-alone-feeling-sorry-for-myself|Rok-rok-rok, rok-weiler]]
+#### [[notes/s/stray_cats/choo_choo_hot_fish/my_heart_is_a_liar.md#sitting-all-alone-feeling-sorry-for-myself-vyl-wnanory|Rok-rok-rok, rok-rok-rok]] {#rokrokrok-rokrokrok-vyl-wnanory}
+#### [[notes/s/stray_cats/choo_choo_hot_fish/my_heart_is_a_liar.md#rokrokrok-rokrokrok-vyl-wnanory|Rok-rok-rok, rok-weiler]]
+#### [[notes/s/stray_cats/choo_choo_hot_fish/my_heart_is_a_liar.md#rokrokrok-rokweiler-vyl-wnanory|Rok-rok-rok, rok-rok-rok]]
+#### [[notes/s/stray_cats/choo_choo_hot_fish/my_heart_is_a_liar.md#rokrokrok-rokrokrok-vyl-wnanory|Rok-rok-rok, rok-weiler]]
 &nbsp;
-#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#if-you-just-let-me-ill-find-a-way|See me in the alleyway coming]]
-#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#if-you-just-let-me-ill-find-a-way|Biting at your heels, running]]
-#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#if-you-just-let-me-ill-find-a-way|Dressed for the night like it's stunning]]
-#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#if-you-just-let-me-ill-find-a-way|See me in the alleyway coming]]
-#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#if-you-just-let-me-ill-find-a-way|Biting at your heels, running]]
-#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#if-you-just-let-me-ill-find-a-way|Dressed for the night like it's stunning]]
-#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#if-you-just-let-me-ill-find-a-way|Rok-weiler]]
+#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#if-you-just-let-me-ill-find-a-way-vyl-wnanory|See me in the alleyway coming]] {#see-me-in-the-alleyway-coming-vyl-wnanory}
+#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#see-me-in-the-alleyway-coming-vyl-wnanory|Biting at your heels, running]]
+#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#biting-at-your-heels-running-vyl-wnanory|Dressed for the night like it's stunning]]
+#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#dressed-for-the-night-like-its-stunning-vyl-wnanory|See me in the alleyway coming]]
+#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#see-me-in-the-alleyway-coming-vyl-wnanory|Biting at your heels, running]]
+#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#biting-at-your-heels-running-vyl-wnanory|Dressed for the night like it's stunning]]
+#### [[notes/i/in_flames/sounds_of_a_playground_fading/ropes.md#dressed-for-the-night-like-its-stunning-vyl-wnanory|Rok-weiler]]
 &nbsp;
 #### Rok-rok-rok, rok-rok-rok
 #### Rok-rok-rok, rok-weiler

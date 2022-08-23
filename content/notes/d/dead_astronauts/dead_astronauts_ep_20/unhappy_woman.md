@@ -5,56 +5,56 @@ tags:
 - Dead Astronauts EP 2.0
 ---
 &nbsp;
-#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air|Ooh, there's something burning in the air]]
-#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air|Ooh, there's something burning in the air]]
-#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air|The fire's spreading everywhere]]
-#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air|Ooh, the fire's spreading everywhere]]
+#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air-vyl-wnanory|Ooh, there's something burning in the air]] {#ooh-theres-something-burning-in-the-air-vyl-wnanory}
+#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#ooh-theres-something-burning-in-the-air-vyl-wnanory|Ooh, there's something burning in the air]]
+#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#ooh-theres-something-burning-in-the-air-vyl-wnanory|The fire's spreading everywhere]]
+#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#the-fires-spreading-everywhere-vyl-wnanory|Ooh, the fire's spreading everywhere]]
 &nbsp;
-#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air|Ooh, there's something burning in the air]]
-#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air|Ooh, there's something burning in the air]]
-#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air|The fire's spreading everywheres]]
-#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air|Ooh, the fire's spreading everywhere]]
+#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#theres-something-in-the-air-vyl-wnanory|Ooh, there's something burning in the air]]
+#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#ooh-theres-something-burning-in-the-air-vyl-wnanory|Ooh, there's something burning in the air]]
+#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#ooh-theres-something-burning-in-the-air-vyl-wnanory|The fire's spreading everywheres]]
+#### [[notes/e/enter_shikari/take_to_the_skies/mothership.md#the-fires-spreading-everywheres-vyl-wnanory|Ooh, the fire's spreading everywhere]]
 &nbsp;
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#im-tired-induced-euphoria-induced-euphoria|Unhappy woman]]
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#im-tired-induced-euphoria-induced-euphoria|Unhappy woman]]
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#im-tired-induced-euphoria-induced-euphoria|Unhappy, unhappy woman]]
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#im-tired-induced-euphoria-induced-euphoria|And I am an unhappy man]]
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#im-tired-induced-euphoria-induced-euphoria-vyl-wnanory|Unhappy woman]] {#unhappy-woman-vyl-wnanory}
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#unhappy-woman-vyl-wnanory|Unhappy woman]]
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#unhappy-woman-vyl-wnanory|Unhappy, unhappy woman]]
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#unhappy-unhappy-woman-vyl-wnanory|And I am an unhappy man]]
 &nbsp;
-#### [[notes/s/shakespears_sister/sacred_heart/sacred_heart.md#hear-my-confession-while-its-on-my-mind|She's counting her time]]
-#### [[notes/s/shakespears_sister/sacred_heart/sacred_heart.md#hear-my-confession-while-its-on-my-mind|She'll be just fine]]
-#### [[notes/s/shakespears_sister/sacred_heart/sacred_heart.md#hear-my-confession-while-its-on-my-mind|She's counting the day]]
-#### [[notes/s/shakespears_sister/sacred_heart/sacred_heart.md#hear-my-confession-while-its-on-my-mind|Come what may]]
+#### [[notes/s/shakespears_sister/sacred_heart/sacred_heart.md#hear-my-confession-while-its-on-my-mind-vyl-wnanory|She's counting her time]] {#shes-counting-her-time-vyl-wnanory}
+#### [[notes/s/shakespears_sister/sacred_heart/sacred_heart.md#shes-counting-her-time-vyl-wnanory|She'll be just fine]]
+#### [[notes/s/shakespears_sister/sacred_heart/sacred_heart.md#shell-be-just-fine-vyl-wnanory|She's counting the day]]
+#### [[notes/s/shakespears_sister/sacred_heart/sacred_heart.md#shes-counting-the-day-vyl-wnanory|Come what may]]
 &nbsp;
 #### She's counting her time
 #### She'll be just fine
 #### She's counting the day
 #### Come what may
 &nbsp;
-#### [[notes/f/fear_cult/visionary_complex/if_youre_watching.md#spare-yourself-the-aching-heart|Stars explode]]
-#### [[notes/f/fear_cult/visionary_complex/if_youre_watching.md#spare-yourself-the-aching-heart|Moons erode and she waits there]]
+#### [[notes/f/fear_cult/visionary_complex/if_youre_watching.md#spare-yourself-the-aching-heart-vyl-wnanory|Stars explode]] {#stars-explode-vyl-wnanory}
+#### [[notes/f/fear_cult/visionary_complex/if_youre_watching.md#stars-explode-vyl-wnanory|Moons erode and she waits there]]
 &nbsp;
-#### [[notes/a/a_day_to_remember/common_courtesy/end_of_me.md#i-took-some-time-away-for-understanding|A few hundred million miles above the sea]]
+#### [[notes/a/a_day_to_remember/common_courtesy/end_of_me.md#i-took-some-time-away-for-understanding-vyl-wnanory|A few hundred million miles above the sea]] {#a-few-hundred-million-miles-above-the-sea-vyl-wnanory}
 &nbsp;
-#### [[notes/c/curve/gift/hung_up.md#give-it-one-more-chance|Stars explode]]
-#### [[notes/c/curve/gift/hung_up.md#give-it-one-more-chance|Moons erode and she waits there]]
-#### [[notes/c/curve/gift/hung_up.md#give-it-one-more-chance|She waits there for me]]
+#### [[notes/c/curve/gift/hung_up.md#give-it-one-more-chance-vyl-wnanory|Stars explode]]
+#### [[notes/c/curve/gift/hung_up.md#stars-explode-vyl-wnanory|Moons erode and she waits there]]
+#### [[notes/c/curve/gift/hung_up.md#moons-erode-and-she-waits-there-vyl-wnanory|She waits there for me]]
 &nbsp;
 #### Unhappy woman
 #### Unhappy woman
 #### Unhappy, unhappy woman
 #### And I am an unhappy man
 &nbsp;
-#### [[notes/b/boy_harsher/country_girl_uncut/send_me_a_vision.md#send-me-an-angel|(A few hundred million miles above the sea)]]
+#### [[notes/b/boy_harsher/country_girl_uncut/send_me_a_vision.md#send-me-an-angel-vyl-wnanory|(A few hundred million miles above the sea)]]
 &nbsp;
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says|She knows it's ready when]]
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says|Her eyes are almost open]]
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says|The moon is blue and dim]]
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says|The tide is surely rushing in]]
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says-vyl-wnanory|She knows it's ready when]] {#she-knows-its-ready-when-vyl-wnanory}
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#she-knows-its-ready-when-vyl-wnanory|Her eyes are almost open]]
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#her-eyes-are-almost-open-vyl-wnanory|The moon is blue and dim]]
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#the-moon-is-blue-and-dim-vyl-wnanory|The tide is surely rushing in]]
 &nbsp;
-#### [[notes/b/breaking_benjamin/phobia/here_we_are.md#so-here-we-are|She knows it's ready when]]
-#### [[notes/b/breaking_benjamin/phobia/here_we_are.md#so-here-we-are|Her eyes are almost open]]
-#### [[notes/b/breaking_benjamin/phobia/here_we_are.md#so-here-we-are|The thunder moves her skin]]
-#### [[notes/b/breaking_benjamin/phobia/here_we_are.md#so-here-we-are|Let's hope that she knows how to swim]]
+#### [[notes/b/breaking_benjamin/phobia/here_we_are.md#so-here-we-are-vyl-wnanory|She knows it's ready when]]
+#### [[notes/b/breaking_benjamin/phobia/here_we_are.md#she-knows-its-ready-when-vyl-wnanory|Her eyes are almost open]]
+#### [[notes/b/breaking_benjamin/phobia/here_we_are.md#her-eyes-are-almost-open-vyl-wnanory|The thunder moves her skin]]
+#### [[notes/b/breaking_benjamin/phobia/here_we_are.md#the-thunder-moves-her-skin-vyl-wnanory|Let's hope that she knows how to swim]]
 &nbsp;
 #### She knows it's ready when
 #### Her eyes are almost open

@@ -5,62 +5,58 @@ tags:
 - Eurotrash
 ---
 &nbsp;
-#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-to-see-you-when-you-come-down|Sit down]]
-#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-to-see-you-when-you-come-down|And watch me]]
-#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-to-see-you-when-you-come-down|I want you]]
-#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-to-see-you-when-you-come-down|To see me]]
+#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-to-see-you-when-you-come-down-vyl-wnanory|Sit down]] {#sit-down-vyl-wnanory}
+#### [[notes/e/emarosa/versus/cliff_notes.md#sit-down-vyl-wnanory|And watch me]]
+#### [[notes/e/emarosa/versus/cliff_notes.md#and-watch-me-vyl-wnanory|I want you]]
+#### [[notes/e/emarosa/versus/cliff_notes.md#i-want-you-vyl-wnanory|To see me]]
 &nbsp;
-#### [[notes/a/amon_amarth/deceiver_of_the_gods/shape_shifter.md#i-was-born-of-giants-blood|As your TV (what's on?)]]
-#### [[notes/a/amon_amarth/deceiver_of_the_gods/shape_shifter.md#i-was-born-of-giants-blood|As your TV (what's on?)]]
-#### [[notes/a/amon_amarth/deceiver_of_the_gods/shape_shifter.md#i-was-born-of-giants-blood|As your TV (what's on?)]]
-#### [[notes/a/amon_amarth/deceiver_of_the_gods/shape_shifter.md#i-was-born-of-giants-blood|As your TV (what's on?)]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/shape_shifter.md#i-was-born-of-giants-blood-vyl-wnanory|As your TV (what's on?)]] {#as-your-tv-whats-on-vyl-wnanory}
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/shape_shifter.md#as-your-tv-whats-on-vyl-wnanory|As your TV (what's on?)]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/shape_shifter.md#as-your-tv-whats-on-vyl-wnanory|As your TV (what's on?)]]
+#### [[notes/a/amon_amarth/deceiver_of_the_gods/shape_shifter.md#as-your-tv-whats-on-vyl-wnanory|As your TV (what's on?)]]
 &nbsp;
-#### [[notes/l/little_hurricane/homewrecker/lies.md#when-youre-with-me-baby|Touched by]]
-#### [[notes/l/little_hurricane/homewrecker/lies.md#when-youre-with-me-baby|Your static]]
-#### [[notes/l/little_hurricane/homewrecker/lies.md#when-youre-with-me-baby|You see right]]
-#### [[notes/l/little_hurricane/homewrecker/lies.md#when-youre-with-me-baby|Right through me]]
+#### [[notes/l/little_hurricane/homewrecker/lies.md#when-youre-with-me-baby-vyl-wnanory|Touched by]] {#touched-by-vyl-wnanory}
+#### [[notes/l/little_hurricane/homewrecker/lies.md#touched-by-vyl-wnanory|Your static]]
+#### [[notes/l/little_hurricane/homewrecker/lies.md#your-static-vyl-wnanory|You see right]]
+#### [[notes/l/little_hurricane/homewrecker/lies.md#you-see-right-vyl-wnanory|Right through me]]
 &nbsp;
 #### As your TV (what's on?)
 #### As your TV (what's on?)
 #### As your TV (what's on?)
 #### As your TV (what's on?)
 &nbsp;
-#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#youre-opening-the-doors-to-the-corridors-stretching-to-the-left|What you hide is what you are,]]
-#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#youre-opening-the-doors-to-the-corridors-stretching-to-the-left|What it takes to be a star, come on]]
-#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#youre-opening-the-doors-to-the-corridors-stretching-to-the-left|You say there's beauty in a scar]]
-#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#youre-opening-the-doors-to-the-corridors-stretching-to-the-left|Now what a stupid thing you are sometimes]]
+#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#youre-opening-the-doors-to-the-corridors-stretching-to-the-left-vyl-wnanory|What you hide is what you are,]] {#what-you-hide-is-what-you-are-vyl-wnanory}
+#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#what-you-hide-is-what-you-are-vyl-wnanory|What it takes to be a star, come on]]
+#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#what-it-takes-to-be-a-star-come-on-vyl-wnanory|You say there's beauty in a scar]]
+#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#you-say-theres-beauty-in-a-scar-vyl-wnanory|Now what a stupid thing you are sometimes]]
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore|After you get what you want you don't want it anymore]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore|(is that what you want?)]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore|After you get what you want you don't want it anymore]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore|(is that what you want?)]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore|After you get what you want you don't want it anymore]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore|(is that what you want?)]]
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore|After you get what you want you don't want it anymore]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore-vyl-wnanory|After you get what you want you don't want it anymore]] {#after-you-get-what-you-want-you-dont-want-it-anymore-vyl-wnanory}
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#after-you-get-what-you-want-you-dont-want-it-anymore-vyl-wnanory|(is that what you want?)]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#is-that-what-you-want-vyl-wnanory|After you get what you want you don't want it anymore]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#after-you-get-what-you-want-you-dont-want-it-anymore-vyl-wnanory|(is that what you want?)]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#is-that-what-you-want-vyl-wnanory|After you get what you want you don't want it anymore]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#after-you-get-what-you-want-you-dont-want-it-anymore-vyl-wnanory|(is that what you want?)]]
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#is-that-what-you-want-vyl-wnanory|After you get what you want you don't want it anymore]]
 &nbsp;
-#### [[notes/b/bile/nightmare_before_krztoff/melas_chasm.md#how-do-we-get-out|Slow down]]
-#### [[notes/b/bile/nightmare_before_krztoff/melas_chasm.md#how-do-we-get-out|Zoom in]]
-#### [[notes/b/bile/nightmare_before_krztoff/melas_chasm.md#how-do-we-get-out|Rewind]]
-#### [[notes/b/bile/nightmare_before_krztoff/melas_chasm.md#how-do-we-get-out|Do you get the picture?]]
+#### [[notes/b/bile/nightmare_before_krztoff/melas_chasm.md#how-do-we-get-out-vyl-wnanory|Slow down]]
+#### [[notes/b/bile/nightmare_before_krztoff/melas_chasm.md#slow-down-vyl-wnanory|Zoom in]]
+#### [[notes/b/bile/nightmare_before_krztoff/melas_chasm.md#zoom-in-vyl-wnanory|Rewind]]
+#### [[notes/b/bile/nightmare_before_krztoff/melas_chasm.md#rewind-vyl-wnanory|Do you get the picture?]]
 &nbsp;
-#### [[notes/b/being_as_an_ocean/how_we_both_wondrously_perish/mediocre_shakespeare.md#we-either-fight-or-flee|Philharmonic]]
-#### [[notes/b/being_as_an_ocean/how_we_both_wondrously_perish/mediocre_shakespeare.md#we-either-fight-or-flee|Philharmonic]]
+#### [[notes/b/being_as_an_ocean/how_we_both_wondrously_perish/mediocre_shakespeare.md#we-either-fight-or-flee-vyl-wnanory|Philharmonic]] {#philharmonic-vyl-wnanory}
+#### [[notes/b/being_as_an_ocean/how_we_both_wondrously_perish/mediocre_shakespeare.md#philharmonic-vyl-wnanory|Philharmonic]]
 &nbsp;
-#### [[notes/i/iron_maiden/brave_new_world/the_fallen_angel.md#beaten-fallen-angel-but-ive-risen-again|As your TV (what's on?)]]
-#### [[notes/i/iron_maiden/brave_new_world/the_fallen_angel.md#beaten-fallen-angel-but-ive-risen-again|As your TV (what's on?)]]
+#### [[notes/i/iron_maiden/brave_new_world/the_fallen_angel.md#beaten-fallen-angel-but-ive-risen-again-vyl-wnanory|As your TV (what's on?)]]
+#### [[notes/i/iron_maiden/brave_new_world/the_fallen_angel.md#as-your-tv-whats-on-vyl-wnanory|As your TV (what's on?)]]
 &nbsp;
 #### What you hide is what you are,
 #### What it takes to be a star, come on
 #### You say there's beauty in a scar
 #### Now what a stupid thing you are sometimes
 &nbsp;
-#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#youre-opening-the-door-to-the-corridor-stretching-to-the-left|Philharmonic]]
+#### [[notes/i/infected_mushroom/vicious_delicious/artillery.md#youre-opening-the-door-to-the-corridor-stretching-to-the-left-vyl-wnanory|Philharmonic]]
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore|After you get what you want you don't want it anymore]]
-&nbsp;
-#### Philharmonic
-&nbsp;
-#### After you get what you want you don't want it anymore
+#### [[notes/s/slipknot/all_hope_is_gone/butchers_hook.md#i-dont-want-you-anymore-vyl-wnanory|After you get what you want you don't want it anymore]]
 &nbsp;
 #### Philharmonic
 &nbsp;
@@ -72,16 +68,20 @@ tags:
 &nbsp;
 #### Philharmonic
 &nbsp;
-#### [[notes/m/ministry/with_sympathy/should_have_known_better.md#she-was-the-reason-i-were-living-every-day|(what's on?)]]
+#### After you get what you want you don't want it anymore
+&nbsp;
+#### Philharmonic
+&nbsp;
+#### [[notes/m/ministry/with_sympathy/should_have_known_better.md#she-was-the-reason-i-were-living-every-day-vyl-wnanory|(what's on?)]] {#whats-on-vyl-wnanory}
 &nbsp;
 #### Philharmonic
 &nbsp;
 #### (what's on?)
 &nbsp;
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/the_castle_builders.md#ive-felt-the-damage-and-burn-from-the-fallout|What you hide is what you are,]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/the_castle_builders.md#ive-felt-the-damage-and-burn-from-the-fallout|What it takes to be a star, come on (oh-on, oh-on)]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/the_castle_builders.md#ive-felt-the-damage-and-burn-from-the-fallout|You say there's beauty in a scar]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/the_castle_builders.md#ive-felt-the-damage-and-burn-from-the-fallout|Now what a stupid thing you are sometimes]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/the_castle_builders.md#ive-felt-the-damage-and-burn-from-the-fallout-vyl-wnanory|What you hide is what you are,]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/the_castle_builders.md#what-you-hide-is-what-you-are-vyl-wnanory|What it takes to be a star, come on (oh-on, oh-on)]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/the_castle_builders.md#what-it-takes-to-be-a-star-come-on-ohon-ohon-vyl-wnanory|You say there's beauty in a scar]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/the_castle_builders.md#you-say-theres-beauty-in-a-scar-vyl-wnanory|Now what a stupid thing you are sometimes]]
 &nbsp;
 #### What you hide is what you are,
 #### What it takes to be a star, come on (oh-on, oh-on)

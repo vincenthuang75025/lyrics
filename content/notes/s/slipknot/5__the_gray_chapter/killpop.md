@@ -5,53 +5,53 @@ tags:
 - .5 The Gray Chapter
 ---
 &nbsp;
-#### [[notes/p/panic_at_the_disco/vices__virtues/always.md#im-skin-and-bone|She's sticking needles in her skin]]
-#### [[notes/p/panic_at_the_disco/vices__virtues/always.md#im-skin-and-bone|I turn with an ugly grin]]
-#### [[notes/p/panic_at_the_disco/vices__virtues/always.md#im-skin-and-bone|Her canvas doesn't leave a lot to fantasy]]
+#### [[notes/p/panic_at_the_disco/vices__virtues/always.md#im-skin-and-bone-vyl-wnanory|She's sticking needles in her skin]] {#shes-sticking-needles-in-her-skin-vyl-wnanory}
+#### [[notes/p/panic_at_the_disco/vices__virtues/always.md#shes-sticking-needles-in-her-skin-vyl-wnanory|I turn with an ugly grin]]
+#### [[notes/p/panic_at_the_disco/vices__virtues/always.md#i-turn-with-an-ugly-grin-vyl-wnanory|Her canvas doesn't leave a lot to fantasy]]
 &nbsp;
-#### [[notes/t/theory_of_a_deadman/drown/drown.md#lay-there-floating-body-bloating-skin-turnin-to-gray|But her peace of mind can't stay inside the lines]]
-#### [[notes/t/theory_of_a_deadman/drown/drown.md#lay-there-floating-body-bloating-skin-turnin-to-gray|It's so confusing, the methods that she's using]]
-#### [[notes/t/theory_of_a_deadman/drown/drown.md#lay-there-floating-body-bloating-skin-turnin-to-gray|She knows she shouldn't leave a mark that I can see]]
+#### [[notes/t/theory_of_a_deadman/drown/drown.md#lay-there-floating-body-bloating-skin-turnin-to-gray-vyl-wnanory|But her peace of mind can't stay inside the lines]] {#but-her-peace-of-mind-cant-stay-inside-the-lines-vyl-wnanory}
+#### [[notes/t/theory_of_a_deadman/drown/drown.md#but-her-peace-of-mind-cant-stay-inside-the-lines-vyl-wnanory|It's so confusing, the methods that she's using]]
+#### [[notes/t/theory_of_a_deadman/drown/drown.md#its-so-confusing-the-methods-that-shes-using-vyl-wnanory|She knows she shouldn't leave a mark that I can see]]
 &nbsp;
-#### [[notes/r/rage_against_the_machine/the_battle_of_los_angeles/testify.md#my-slaving-sweating|Will she ever find, one million of a kind?]]
-#### [[notes/r/rage_against_the_machine/the_battle_of_los_angeles/testify.md#my-slaving-sweating|It's cold and lonely but that's because she told me]]
-#### [[notes/r/rage_against_the_machine/the_battle_of_los_angeles/testify.md#my-slaving-sweating|Lost inside her dirty world]]
-#### [[notes/r/rage_against_the_machine/the_battle_of_los_angeles/testify.md#my-slaving-sweating|No one hurts this pretty girl but her]]
+#### [[notes/r/rage_against_the_machine/the_battle_of_los_angeles/testify.md#my-slaving-sweating-vyl-wnanory|Will she ever find, one million of a kind?]] {#will-she-ever-find-one-million-of-a-kind-vyl-wnanory}
+#### [[notes/r/rage_against_the_machine/the_battle_of_los_angeles/testify.md#will-she-ever-find-one-million-of-a-kind-vyl-wnanory|It's cold and lonely but that's because she told me]]
+#### [[notes/r/rage_against_the_machine/the_battle_of_los_angeles/testify.md#its-cold-and-lonely-but-thats-because-she-told-me-vyl-wnanory|Lost inside her dirty world]]
+#### [[notes/r/rage_against_the_machine/the_battle_of_los_angeles/testify.md#lost-inside-her-dirty-world-vyl-wnanory|No one hurts this pretty girl but her]]
 &nbsp;
-#### [[notes/c/crying_vessel/necrozine/dreams_of_a_ghost_town.md#i-threw-down-my-book|Oh, she's beautiful]]
-#### [[notes/c/crying_vessel/necrozine/dreams_of_a_ghost_town.md#i-threw-down-my-book|A little better than a man deserves]]
-#### [[notes/c/crying_vessel/necrozine/dreams_of_a_ghost_town.md#i-threw-down-my-book|Ooh, I'm not insane]]
-#### [[notes/c/crying_vessel/necrozine/dreams_of_a_ghost_town.md#i-threw-down-my-book|Please tell me she won't change]]
+#### [[notes/c/crying_vessel/necrozine/dreams_of_a_ghost_town.md#i-threw-down-my-book-vyl-wnanory|Oh, she's beautiful]] {#oh-shes-beautiful-vyl-wnanory}
+#### [[notes/c/crying_vessel/necrozine/dreams_of_a_ghost_town.md#oh-shes-beautiful-vyl-wnanory|A little better than a man deserves]]
+#### [[notes/c/crying_vessel/necrozine/dreams_of_a_ghost_town.md#a-little-better-than-a-man-deserves-vyl-wnanory|Ooh, I'm not insane]]
+#### [[notes/c/crying_vessel/necrozine/dreams_of_a_ghost_town.md#ooh-im-not-insane-vyl-wnanory|Please tell me she won't change]]
 &nbsp;
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says|Maybe I should let her go]]
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says|But only when she loves me (She loves me)]]
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says|How can I just let her go?]]
-#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says|Not until she loves me (She loves me)]]
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#if-you-could-only-see-how-blue-her-eyes-can-be-when-she-says-vyl-wnanory|Maybe I should let her go]] {#maybe-i-should-let-her-go-vyl-wnanory}
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#maybe-i-should-let-her-go-vyl-wnanory|But only when she loves me (She loves me)]]
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#but-only-when-she-loves-me-she-loves-me-vyl-wnanory|How can I just let her go?]]
+#### [[notes/t/tonic/lemon_parade/if_you_could_only_see.md#how-can-i-just-let-her-go-vyl-wnanory|Not until she loves me (She loves me)]]
 &nbsp;
-#### [[notes/t/the_cure/bloodflowers/39.md#but-theres-nothing-left-to-burn|She's drowning in herself again]]
-#### [[notes/t/the_cure/bloodflowers/39.md#but-theres-nothing-left-to-burn|My God, what a lovely sin]]
-#### [[notes/t/the_cure/bloodflowers/39.md#but-theres-nothing-left-to-burn|I guess there's nothing left to do but have my way]]
+#### [[notes/t/the_cure/bloodflowers/39.md#but-theres-nothing-left-to-burn-vyl-wnanory|She's drowning in herself again]] {#shes-drowning-in-herself-again-vyl-wnanory}
+#### [[notes/t/the_cure/bloodflowers/39.md#shes-drowning-in-herself-again-vyl-wnanory|My God, what a lovely sin]]
+#### [[notes/t/the_cure/bloodflowers/39.md#my-god-what-a-lovely-sin-vyl-wnanory|I guess there's nothing left to do but have my way]]
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/insane.md#maybe-i-became-insane|She can feel it's right, so she doesn't close her eyes]]
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/insane.md#maybe-i-became-insane|She smiles and answers; it doesn't seem to matter]]
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/insane.md#maybe-i-became-insane|Lost inside my dirty head]]
-#### [[notes/b/breakdown_of_sanity/the_last_sunset/insane.md#maybe-i-became-insane|Something tells me I'm the one who's kept]]
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/insane.md#maybe-i-became-insane-vyl-wnanory|She can feel it's right, so she doesn't close her eyes]] {#she-can-feel-its-right-so-she-doesnt-close-her-eyes-vyl-wnanory}
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/insane.md#she-can-feel-its-right-so-she-doesnt-close-her-eyes-vyl-wnanory|She smiles and answers; it doesn't seem to matter]]
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/insane.md#she-smiles-and-answers-it-doesnt-seem-to-matter-vyl-wnanory|Lost inside my dirty head]]
+#### [[notes/b/breakdown_of_sanity/the_last_sunset/insane.md#lost-inside-my-dirty-head-vyl-wnanory|Something tells me I'm the one who's kept]]
 &nbsp;
-#### [[notes/a/asking_alexandria/reckless_and_relentless/reckless__relentless.md#through-sin-and-selfdestruction-i-stumble-home-never-alone|Loud, so volatile]]
-#### [[notes/a/asking_alexandria/reckless_and_relentless/reckless__relentless.md#through-sin-and-selfdestruction-i-stumble-home-never-alone|A little better than her mind defiled]]
-#### [[notes/a/asking_alexandria/reckless_and_relentless/reckless__relentless.md#through-sin-and-selfdestruction-i-stumble-home-never-alone|Who I need to be]]
-#### [[notes/a/asking_alexandria/reckless_and_relentless/reckless__relentless.md#through-sin-and-selfdestruction-i-stumble-home-never-alone|Please tell me she won't change]]
+#### [[notes/a/asking_alexandria/reckless_and_relentless/reckless__relentless.md#through-sin-and-selfdestruction-i-stumble-home-never-alone-vyl-wnanory|Loud, so volatile]] {#loud-so-volatile-vyl-wnanory}
+#### [[notes/a/asking_alexandria/reckless_and_relentless/reckless__relentless.md#loud-so-volatile-vyl-wnanory|A little better than her mind defiled]]
+#### [[notes/a/asking_alexandria/reckless_and_relentless/reckless__relentless.md#a-little-better-than-her-mind-defiled-vyl-wnanory|Who I need to be]]
+#### [[notes/a/asking_alexandria/reckless_and_relentless/reckless__relentless.md#who-i-need-to-be-vyl-wnanory|Please tell me she won't change]]
 &nbsp;
 #### Maybe I should let her go
 #### But only when she loves me (She loves me)
 #### How can I just let her go?
 #### Not until she loves me (She loves me)
 &nbsp;
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/new_storms_for_older_lovers.md#ive-come-here-as-a-man-in-shambles|We were meant to be together]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/new_storms_for_older_lovers.md#ive-come-here-as-a-man-in-shambles|Now die and fucking love me]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/new_storms_for_older_lovers.md#ive-come-here-as-a-man-in-shambles|We were made to hate each other]]
-#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/new_storms_for_older_lovers.md#ive-come-here-as-a-man-in-shambles|Now die and fucking love me]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/new_storms_for_older_lovers.md#ive-come-here-as-a-man-in-shambles-vyl-wnanory|We were meant to be together]] {#we-were-meant-to-be-together-vyl-wnanory}
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/new_storms_for_older_lovers.md#we-were-meant-to-be-together-vyl-wnanory|Now die and fucking love me]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/new_storms_for_older_lovers.md#now-die-and-fucking-love-me-vyl-wnanory|We were made to hate each other]]
+#### [[notes/l/la_dispute/somewhere_at_the_bottom_of_the_river_between_vega_and_altair/new_storms_for_older_lovers.md#we-were-made-to-hate-each-other-vyl-wnanory|Now die and fucking love me]]
 &nbsp;
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/broken_cross.md#he-doesnt-fucking-love-us|Die and fucking love me]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/broken_cross.md#he-doesnt-fucking-love-us|Die and fucking love me]]
-#### [[notes/a/architects/lost_forever_∕∕_lost_together/broken_cross.md#he-doesnt-fucking-love-us|Die and fucking love me]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/broken_cross.md#he-doesnt-fucking-love-us-vyl-wnanory|Die and fucking love me]] {#die-and-fucking-love-me-vyl-wnanory}
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/broken_cross.md#die-and-fucking-love-me-vyl-wnanory|Die and fucking love me]]
+#### [[notes/a/architects/lost_forever_∕∕_lost_together/broken_cross.md#die-and-fucking-love-me-vyl-wnanory|Die and fucking love me]]

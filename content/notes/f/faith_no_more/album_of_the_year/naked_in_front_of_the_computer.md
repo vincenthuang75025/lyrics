@@ -5,43 +5,43 @@ tags:
 - Album of the Year
 ---
 &nbsp;
-#### [[notes/w/we_came_as_romans/we_came_as_romans/tear_it_down.md#ill-tear-it-down-kingdom-built-on-lies|My box is full]]
-#### [[notes/w/we_came_as_romans/we_came_as_romans/tear_it_down.md#ill-tear-it-down-kingdom-built-on-lies|And my mouth is full]]
-#### [[notes/w/we_came_as_romans/we_came_as_romans/tear_it_down.md#ill-tear-it-down-kingdom-built-on-lies|And my life is full]]
-#### [[notes/w/we_came_as_romans/we_came_as_romans/tear_it_down.md#ill-tear-it-down-kingdom-built-on-lies|Until the memory's full]]
+#### [[notes/w/we_came_as_romans/we_came_as_romans/tear_it_down.md#ill-tear-it-down-kingdom-built-on-lies-vyl-wnanory|My box is full]] {#my-box-is-full-vyl-wnanory}
+#### [[notes/w/we_came_as_romans/we_came_as_romans/tear_it_down.md#my-box-is-full-vyl-wnanory|And my mouth is full]]
+#### [[notes/w/we_came_as_romans/we_came_as_romans/tear_it_down.md#and-my-mouth-is-full-vyl-wnanory|And my life is full]]
+#### [[notes/w/we_came_as_romans/we_came_as_romans/tear_it_down.md#and-my-life-is-full-vyl-wnanory|Until the memory's full]]
 &nbsp;
-#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#how-many-ways-can-i-say-it|In how many ways and words]]
-#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#how-many-ways-can-i-say-it|Can you say nothing]]
-#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#how-many-ways-can-i-say-it|Millions of ways and words]]
-#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#how-many-ways-can-i-say-it|To say nothing]]
-#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#how-many-ways-can-i-say-it|In how many ways and words]]
-#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#how-many-ways-can-i-say-it|Can you say nothing]]
-#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#how-many-ways-can-i-say-it|Millions of ways and words]]
+#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#how-many-ways-can-i-say-it-vyl-wnanory|In how many ways and words]] {#in-how-many-ways-and-words-vyl-wnanory}
+#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#in-how-many-ways-and-words-vyl-wnanory|Can you say nothing]]
+#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#can-you-say-nothing-vyl-wnanory|Millions of ways and words]]
+#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#millions-of-ways-and-words-vyl-wnanory|To say nothing]]
+#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#to-say-nothing-vyl-wnanory|In how many ways and words]]
+#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#in-how-many-ways-and-words-vyl-wnanory|Can you say nothing]]
+#### [[notes/b/boy_harsher/country_girl_uncut/swing.md#can-you-say-nothing-vyl-wnanory|Millions of ways and words]]
 &nbsp;
-#### [[notes/k/korn/the_paradigm_shift/lullaby_for_a_sadist.md#i-look-at-you-and-start-to-crack-start-to-crack|What'd I say?]]
-#### [[notes/k/korn/the_paradigm_shift/lullaby_for_a_sadist.md#i-look-at-you-and-start-to-crack-start-to-crack|I'm empty]]
+#### [[notes/k/korn/the_paradigm_shift/lullaby_for_a_sadist.md#i-look-at-you-and-start-to-crack-start-to-crack-vyl-wnanory|What'd I say?]] {#whatd-i-say-vyl-wnanory}
+#### [[notes/k/korn/the_paradigm_shift/lullaby_for_a_sadist.md#whatd-i-say-vyl-wnanory|I'm empty]]
 &nbsp;
-#### [[notes/a/asking_alexandria/from_death_to_destiny/run_free.md#run-free-and-wild-lose-your-mind-this-worlds-yours-for-the-taking|I bought the thing]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/run_free.md#run-free-and-wild-lose-your-mind-this-worlds-yours-for-the-taking|I taught the thing]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/run_free.md#run-free-and-wild-lose-your-mind-this-worlds-yours-for-the-taking|And I fought the thing]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/run_free.md#run-free-and-wild-lose-your-mind-this-worlds-yours-for-the-taking-vyl-wnanory|I bought the thing]] {#i-bought-the-thing-vyl-wnanory}
+#### [[notes/a/asking_alexandria/from_death_to_destiny/run_free.md#i-bought-the-thing-vyl-wnanory|I taught the thing]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/run_free.md#i-taught-the-thing-vyl-wnanory|And I fought the thing]]
 &nbsp;
-#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all|They said it's normal]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all|But they're keeping me dumb and hot]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all|You're missing something]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all|Keeping me dumb and hot]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all|You must be missing something]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all|Keeping me dumb and hot]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all|You must be missing something]]
-#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all|Keeping me dumb and hot]]
-&nbsp;
-#### What'd I say?
-#### I'm empty
+#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#break-down-the-walls-i-want-it-all-vyl-wnanory|They said it's normal]] {#they-said-its-normal-vyl-wnanory}
+#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#they-said-its-normal-vyl-wnanory|But they're keeping me dumb and hot]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#but-theyre-keeping-me-dumb-and-hot-vyl-wnanory|You're missing something]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#youre-missing-something-vyl-wnanory|Keeping me dumb and hot]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#keeping-me-dumb-and-hot-vyl-wnanory|You must be missing something]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#you-must-be-missing-something-vyl-wnanory|Keeping me dumb and hot]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#keeping-me-dumb-and-hot-vyl-wnanory|You must be missing something]]
+#### [[notes/a/asking_alexandria/from_death_to_destiny/break_down_the_walls.md#you-must-be-missing-something-vyl-wnanory|Keeping me dumb and hot]]
 &nbsp;
 #### What'd I say?
 #### I'm empty
 &nbsp;
-#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#you-took-it-back|And I'm sending it back to you]]
-#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#you-took-it-back|And I'm sending it back to you]]
-#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#you-took-it-back|Sending it back to you]]
-#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#you-took-it-back|I'm sending it back to you]]
-#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#you-took-it-back|Sending it back to you]]
+#### What'd I say?
+#### I'm empty
+&nbsp;
+#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#you-took-it-back-vyl-wnanory|And I'm sending it back to you]] {#and-im-sending-it-back-to-you-vyl-wnanory}
+#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#and-im-sending-it-back-to-you-vyl-wnanory|And I'm sending it back to you]]
+#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#and-im-sending-it-back-to-you-vyl-wnanory|Sending it back to you]]
+#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#sending-it-back-to-you-vyl-wnanory|I'm sending it back to you]]
+#### [[notes/t/the_used/the_used/greener_with_the_scenery.md#im-sending-it-back-to-you-vyl-wnanory|Sending it back to you]]

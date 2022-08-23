@@ -5,29 +5,29 @@ tags:
 - In Absentia
 ---
 &nbsp;
-#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people|Train set and match spied under the blind]]
-#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people|Shiny and contoured the railway winds]]
-#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people|And I've heard the sound from my cousin's bed]]
-#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people|The hiss of the train at the railway head]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#who-are-these-people-vyl-wnanory|Train set and match spied under the blind]] {#train-set-and-match-spied-under-the-blind-vyl-wnanory}
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#train-set-and-match-spied-under-the-blind-vyl-wnanory|Shiny and contoured the railway winds]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#shiny-and-contoured-the-railway-winds-vyl-wnanory|And I've heard the sound from my cousin's bed]]
+#### [[notes/p/panic_at_the_disco/death_of_a_bachelor/dont_threaten_me_with_a_good_time.md#and-ive-heard-the-sound-from-my-cousins-bed-vyl-wnanory|The hiss of the train at the railway head]]
 &nbsp;
-#### [[notes/c/caliban/ghost_empire/i_am_ghost.md#im-floating-in-a-lifeless-haze|Always the summers are slipping away]]
+#### [[notes/c/caliban/ghost_empire/i_am_ghost.md#im-floating-in-a-lifeless-haze-vyl-wnanory|Always the summers are slipping away]] {#always-the-summers-are-slipping-away-vyl-wnanory}
 &nbsp;
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#out-of-time-|A 60-ton angel falls to the earth]]
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#out-of-time-|A pile of old metal, a radiant blur]]
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#out-of-time-|Scars in the country, the summer and her]]
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#out-of-time-vyl-wnanory|A 60-ton angel falls to the earth]] {#a-60ton-angel-falls-to-the-earth-vyl-wnanory}
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#a-60ton-angel-falls-to-the-earth-vyl-wnanory|A pile of old metal, a radiant blur]]
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/brompton_cocktail.md#a-pile-of-old-metal-a-radiant-blur-vyl-wnanory|Scars in the country, the summer and her]]
 &nbsp;
-#### [[notes/g/girls_under_glass/equilibrium/its_you.md#you-are-my-little-love|Always the summers are slipping away]]
-#### [[notes/g/girls_under_glass/equilibrium/its_you.md#you-are-my-little-love|Find me a way for making it stay]]
+#### [[notes/g/girls_under_glass/equilibrium/its_you.md#you-are-my-little-love-vyl-wnanory|Always the summers are slipping away]]
+#### [[notes/g/girls_under_glass/equilibrium/its_you.md#always-the-summers-are-slipping-away-vyl-wnanory|Find me a way for making it stay]]
 &nbsp;
-#### [[notes/i/iron_maiden/brave_new_world/brave_new_world.md#dragon-kings-dying-queens|When I hear the engine pass]]
-#### [[notes/i/iron_maiden/brave_new_world/brave_new_world.md#dragon-kings-dying-queens|I'm kissing you wide]]
-#### [[notes/i/iron_maiden/brave_new_world/brave_new_world.md#dragon-kings-dying-queens|The hissing subsides]]
-#### [[notes/i/iron_maiden/brave_new_world/brave_new_world.md#dragon-kings-dying-queens|I'm in luck]]
+#### [[notes/i/iron_maiden/brave_new_world/brave_new_world.md#dragon-kings-dying-queens-vyl-wnanory|When I hear the engine pass]] {#when-i-hear-the-engine-pass-vyl-wnanory}
+#### [[notes/i/iron_maiden/brave_new_world/brave_new_world.md#when-i-hear-the-engine-pass-vyl-wnanory|I'm kissing you wide]]
+#### [[notes/i/iron_maiden/brave_new_world/brave_new_world.md#im-kissing-you-wide-vyl-wnanory|The hissing subsides]]
+#### [[notes/i/iron_maiden/brave_new_world/brave_new_world.md#the-hissing-subsides-vyl-wnanory|I'm in luck]]
 &nbsp;
-#### [[notes/s/stray_cats/choo_choo_hot_fish/cross_of_love.md#but-dont-you-leave-me-here|When the evening reaches here]]
-#### [[notes/s/stray_cats/choo_choo_hot_fish/cross_of_love.md#but-dont-you-leave-me-here|You're tying me up]]
-#### [[notes/s/stray_cats/choo_choo_hot_fish/cross_of_love.md#but-dont-you-leave-me-here|I'm dying of love]]
-#### [[notes/s/stray_cats/choo_choo_hot_fish/cross_of_love.md#but-dont-you-leave-me-here|It's OK]]
+#### [[notes/s/stray_cats/choo_choo_hot_fish/cross_of_love.md#but-dont-you-leave-me-here-vyl-wnanory|When the evening reaches here]] {#when-the-evening-reaches-here-vyl-wnanory}
+#### [[notes/s/stray_cats/choo_choo_hot_fish/cross_of_love.md#when-the-evening-reaches-here-vyl-wnanory|You're tying me up]]
+#### [[notes/s/stray_cats/choo_choo_hot_fish/cross_of_love.md#youre-tying-me-up-vyl-wnanory|I'm dying of love]]
+#### [[notes/s/stray_cats/choo_choo_hot_fish/cross_of_love.md#im-dying-of-love-vyl-wnanory|It's OK]]
 &nbsp;
 #### When I hear the engine pass
 #### I'm kissing you wide
@@ -39,8 +39,8 @@ tags:
 #### I'm dying of love
 #### It's OK
 &nbsp;
-#### [[notes/p/parkway_drive/ire/destroyer.md#we-speak-in-lies-we-speak-in-tongues|(Always the summers are slipping away)]]
-#### [[notes/p/parkway_drive/ire/destroyer.md#we-speak-in-lies-we-speak-in-tongues|(Find me a way for making it stay)]]
+#### [[notes/p/parkway_drive/ire/destroyer.md#we-speak-in-lies-we-speak-in-tongues-vyl-wnanory|(Always the summers are slipping away)]]
+#### [[notes/p/parkway_drive/ire/destroyer.md#always-the-summers-are-slipping-away-vyl-wnanory|(Find me a way for making it stay)]]
 &nbsp;
-#### [[notes/c/caliban/ghost_empire/i_am_ghost.md#im-floating-in-a-lifeless-haze|Always the summers are slipping away]]
-#### [[notes/c/caliban/ghost_empire/i_am_ghost.md#im-floating-in-a-lifeless-haze|Always the summers are slipping away]]
+#### [[notes/c/caliban/ghost_empire/i_am_ghost.md#im-floating-in-a-lifeless-haze-vyl-wnanory|Always the summers are slipping away]]
+#### [[notes/c/caliban/ghost_empire/i_am_ghost.md#always-the-summers-are-slipping-away-vyl-wnanory|Always the summers are slipping away]]

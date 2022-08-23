@@ -5,20 +5,20 @@ tags:
 - Super Space Model
 ---
 &nbsp;
-#### [[notes/b/breakdown_of_sanity/perception/invisible_scars.md#every-night-i-dream-of-the-love-i-lived-twice|Brothers and Sisters,]]
-#### [[notes/b/breakdown_of_sanity/perception/invisible_scars.md#every-night-i-dream-of-the-love-i-lived-twice|Can't you see the world is dying?]]
-#### [[notes/b/breakdown_of_sanity/perception/invisible_scars.md#every-night-i-dream-of-the-love-i-lived-twice|We must resist, we can't look back,]]
-#### [[notes/b/breakdown_of_sanity/perception/invisible_scars.md#every-night-i-dream-of-the-love-i-lived-twice|The future is crying.]]
+#### [[notes/b/breakdown_of_sanity/perception/invisible_scars.md#every-night-i-dream-of-the-love-i-lived-twice-vyl-wnanory|Brothers and Sisters,]] {#brothers-and-sisters-vyl-wnanory}
+#### [[notes/b/breakdown_of_sanity/perception/invisible_scars.md#brothers-and-sisters-vyl-wnanory|Can't you see the world is dying?]]
+#### [[notes/b/breakdown_of_sanity/perception/invisible_scars.md#cant-you-see-the-world-is-dying-vyl-wnanory|We must resist, we can't look back,]]
+#### [[notes/b/breakdown_of_sanity/perception/invisible_scars.md#we-must-resist-we-cant-look-back-vyl-wnanory|The future is crying.]]
 &nbsp;
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#god-is-in-the-tv|All the news]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#god-is-in-the-tv|On TV]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#god-is-in-the-tv|On TV]]
-#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#god-is-in-the-tv|On TV]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#god-is-in-the-tv-vyl-wnanory|All the news]] {#all-the-news-vyl-wnanory}
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#all-the-news-vyl-wnanory|On TV]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#on-tv-vyl-wnanory|On TV]]
+#### [[notes/m/marilyn_manson/lest_we_forget__the_best_of/rock_is_dead.md#on-tv-vyl-wnanory|On TV]]
 &nbsp;
-#### [[notes/p/parkway_drive/ire/crushed.md#brothers-my-brothers|Brothers and Sisters,]]
-#### [[notes/p/parkway_drive/ire/crushed.md#brothers-my-brothers|Can't you see?]]
-#### [[notes/p/parkway_drive/ire/crushed.md#brothers-my-brothers|Can't you see?]]
-#### [[notes/p/parkway_drive/ire/crushed.md#brothers-my-brothers|Can't you see?]]
+#### [[notes/p/parkway_drive/ire/crushed.md#brothers-my-brothers-vyl-wnanory|Brothers and Sisters,]]
+#### [[notes/p/parkway_drive/ire/crushed.md#brothers-and-sisters-vyl-wnanory|Can't you see?]]
+#### [[notes/p/parkway_drive/ire/crushed.md#cant-you-see-vyl-wnanory|Can't you see?]]
+#### [[notes/p/parkway_drive/ire/crushed.md#cant-you-see-vyl-wnanory|Can't you see?]]
 &nbsp;
 #### Brothers and Sisters,
 #### Can't you see the world is dying?

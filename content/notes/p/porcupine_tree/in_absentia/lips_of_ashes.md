@@ -5,18 +5,18 @@ tags:
 - In Absentia
 ---
 &nbsp;
-#### [[notes/s/slipknot/5__the_gray_chapter/the_negative_one.md#svengali-why-are-we-the-enemies|Paralysed]]
-#### [[notes/s/slipknot/5__the_gray_chapter/the_negative_one.md#svengali-why-are-we-the-enemies|Lips of ashes]]
-#### [[notes/s/slipknot/5__the_gray_chapter/the_negative_one.md#svengali-why-are-we-the-enemies|Synchronised]]
-#### [[notes/s/slipknot/5__the_gray_chapter/the_negative_one.md#svengali-why-are-we-the-enemies|Blue vein crashes]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_negative_one.md#svengali-why-are-we-the-enemies-vyl-wnanory|Paralysed]] {#paralysed-vyl-wnanory}
+#### [[notes/s/slipknot/5__the_gray_chapter/the_negative_one.md#paralysed-vyl-wnanory|Lips of ashes]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_negative_one.md#lips-of-ashes-vyl-wnanory|Synchronised]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_negative_one.md#synchronised-vyl-wnanory|Blue vein crashes]]
 &nbsp;
-#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#so-step-inside-step-inside|Touching, touching you inside]]
-#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#so-step-inside-step-inside|Inside, inside, inside, inside, inside, inside]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#so-step-inside-step-inside-vyl-wnanory|Touching, touching you inside]] {#touching-touching-you-inside-vyl-wnanory}
+#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#touching-touching-you-inside-vyl-wnanory|Inside, inside, inside, inside, inside, inside]]
 &nbsp;
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/a_little_piece_of_heaven.md#i-almost-laughed-myself-to-tears|Idolised]]
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/a_little_piece_of_heaven.md#i-almost-laughed-myself-to-tears|Black eyes fading]]
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/a_little_piece_of_heaven.md#i-almost-laughed-myself-to-tears|You and I]]
-#### [[notes/a/avenged_sevenfold/avenged_sevenfold/a_little_piece_of_heaven.md#i-almost-laughed-myself-to-tears|Connection failing]]
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/a_little_piece_of_heaven.md#i-almost-laughed-myself-to-tears-vyl-wnanory|Idolised]] {#idolised-vyl-wnanory}
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/a_little_piece_of_heaven.md#idolised-vyl-wnanory|Black eyes fading]]
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/a_little_piece_of_heaven.md#black-eyes-fading-vyl-wnanory|You and I]]
+#### [[notes/a/avenged_sevenfold/avenged_sevenfold/a_little_piece_of_heaven.md#you-and-i-vyl-wnanory|Connection failing]]
 &nbsp;
-#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#so-step-inside-step-inside|I drill, I drill down inside]]
-#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#so-step-inside-step-inside|Inside, inside, inside, inside, inside, inside]]
+#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#so-step-inside-step-inside-vyl-wnanory|I drill, I drill down inside]] {#i-drill-i-drill-down-inside-vyl-wnanory}
+#### [[notes/s/slipknot/5__the_gray_chapter/the_devil_in_i.md#i-drill-i-drill-down-inside-vyl-wnanory|Inside, inside, inside, inside, inside, inside]]

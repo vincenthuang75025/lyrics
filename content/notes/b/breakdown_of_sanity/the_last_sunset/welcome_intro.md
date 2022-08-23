@@ -5,4 +5,4 @@ tags:
 - The Last Sunset
 ---
 &nbsp;
-#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#welcome-out|Welcome to the Downfall!]]
+#### [[notes/s/slipknot/all_hope_is_gone/this_cold_black.md#welcome-out-vyl-wnanory|Welcome to the Downfall!]] {#welcome-to-the-downfall-vyl-wnanory}
