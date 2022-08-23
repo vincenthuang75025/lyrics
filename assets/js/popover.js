@@ -9,8 +9,6 @@ function findHeaderWithoutPunctuation(header, content) {
   let loweredContent = content.toLowerCase()
   let pos = -1
   let search = true
-  console.log(content)
-  console.log(header)
   while (search) {
     pos = loweredContent.indexOf("<h4>", pos+1)
     if (pos == -1) {
@@ -60,7 +58,8 @@ function initPopover(baseURL, useContextualBacklinks, renderLatex) {
             }
             const popoverElement = `<div class="popover">
     <h3>${linkDest.title}</h3>
-    <p>${cleanedContent.split(" ", 20).join(" ")}...</p>
+    <hr>
+    <div>${cleanedContent.split(" ", 20).join(" ")}...</div>
     <p class="meta">${new Date(linkDest.lastmodified).toLocaleDateString()}</p>
 </div>`
             el = htmlToElement(popoverElement)
