@@ -1,0 +1,45 @@
+---
+title: "Prophet In Plain Clothes"
+tags:
+- Defeater
+- Travels
+---
+&nbsp;
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|He walks the streets collar up to the snowfall.]] {#he-walks-the-streets-collar-up-to-the-snowfall-vyl-wnanory}
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Holes in pockets and knees.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Sleeps in bar rooms and horse stalls.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|But you can't stay too long in one place.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|"Move along kid, we don't like your face."]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Mother's hold children close out of fear.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Father's curse under breath as they sneer.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|He walks the streets, years pass by with the snowfall.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Time is wasted in drink, days begging and lost souls.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Holds no merit in vagrants in boxcars.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Down in hell you best know who your friends are.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|"Not so proud scrounging for your next meal. No alibis sold when with devils you deal. How does it feel to be all alone with no direction? Home is never home, it's just the place where you came from."]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|"Home is never home," writ on walls of the church and the hostels.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|"Home is never home," said by martyrs and lost souls.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|"Home is never home," said the prophet in plain clothes as he strummed his guitar.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|And he screamed, and he sang:]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|"Well I've been tired because I don't sleep that well on trains.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Well i got ups and downs but days are all the same.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|I've been low but it never gets me down.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Well I've been thrown out, I've been let down, I've been shamed.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Well I've had hardships, I've been stripped of pride and name.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|I've been low but it never gets me down]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|And i spent drinkin' all the worry from my head]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|In days spent wonderin', wishin' I was dead.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|If only i could muster the words out from my mouth.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|I would sing.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Oh i would sing.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|I'd take the next train out.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Cause I've been hopin' I've been prayin' there's some God.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|So when i die I'm saved and found and I'm not lost.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Cause all he's done, all for me is take away the ones I love.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|And i spent drinkin' all the worry from my head.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|In days spent wonderin', wishin' Q was dead]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|If only I could muster the words out from my mouth.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|I would sing.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|Oh, i would sing.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|I'd take the next train out.]]
+#### [[songs/a/atari_teenage_riot/reset/death_machine.md#generation-collapses-vyl-wnanory|I'm gonna take it "]]

@@ -229,7 +229,16 @@ async function drawGraph(baseUrl, isHome, pathColors, graphConfig) {
     .attr("dx", 0)
     .attr("dy", (d) => nodeRadius(d) + 8 + "px")
     .attr("text-anchor", "middle")
-    .text((d) => content[d.id]?.title || d.id.replace("-", " "))
+    .text((d) => {
+      if (content[d.id]) {
+        return content[d.id].title
+      } else {
+        let name = d.id.replace("_", " ")
+        let split_name = name.split("/")
+        let song_name = split_name[split_name.length - 1]
+        return song_name.toLowerCase().replace(/\b\w/g, l => l.toUpperCase())
+      }
+    })
     .style('opacity', (opacityScale - 1) / 3.75)
     .style("pointer-events", "none")
     .style('font-size', fontSize+'em')
