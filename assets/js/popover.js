@@ -54,6 +54,8 @@ function initPopover(baseURL, useContextualBacklinks, renderLatex) {
               let headingName = splitLink[1].replace("-vyl-wnanory", "").replace(/\-/g, " ")
               let headingIndex = findHeaderWithoutPunctuation(headingName, cleanedContent)
               cleanedContent = cleanedContent.substring(headingIndex, cleanedContent.length)
+            } else {
+              cleanedContent = cleanedContent.substring(7, cleanedContent.length)
             }
             const popoverElement = `<div class="popover">
     <h3>${linkDest.title}</h3>
