@@ -1,4 +1,4 @@
-baseURL = "http://lyrics.vvhuang.com/"
+baseURL = "https://lyrics.vvhuang.com/"
 languageCode = "en-us"
 googleAnalytics = "G-XYFD95KB4J"
 relativeURLs = false
