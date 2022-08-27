@@ -15,8 +15,7 @@ GitHubLink: https://github.com/vincenthuang75025/lyrics/tree/hugo/content
 enableSemanticSearch: false
 operandApiKey: "REPLACE-WITH-YOUR-OPERAND-API-KEY"
 description:
-  Host your second brain and digital garden for free. Quartz features extremely fast full-text search,
-  Wikilink support, backlinks, local graph, tags, and link previews.
+  Explore lyrical similarity between different songs!
 page_title:
   "Lyrics"
 links:
